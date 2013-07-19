@@ -11,6 +11,6 @@
 
 ## Ozzy Osbource
 
-- Shot in the Dard
+- Shot in the Dark
 	- http://www.youtube.com/watch?v=XjYJIDyFofk
 		- :54 to 1:00
