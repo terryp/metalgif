@@ -2,6 +2,9 @@
 ## Macro Reference
 - http://www.digitaldreamdoor.com/pages/best_metal-hair-art.html
 
+## Dio
+- Holy Diver
+
 ## Dokken
 
 - Dream Warriors
@@ -11,6 +14,9 @@
     	- 1:42 to 1:46
     	- 1:56 to 1:59
     	- 2:22 to 2:30
+
+## Kiss
+- Lick It Up
 
 ## Ozzy Osbource
 
@@ -39,3 +45,7 @@
 	- http://www.youtube.com/watch?v=2XYAwpVtYrE
 		- :46 to :49
 		- 1:03 to 1:06
+
+## WASP 
+
+- I Wanna Be Somebody
