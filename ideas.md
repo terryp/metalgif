@@ -1,4 +1,7 @@
 
+## Macro Reference
+- http://www.digitaldreamdoor.com/pages/best_metal-hair-art.html
+
 ## Dokken
 
 - Dream Warriors
@@ -14,6 +17,11 @@
 - Shot in the Dark
 	- http://www.youtube.com/watch?v=XjYJIDyFofk
 		- :54 to 1:00
+- Crazy Train
+    - http://www.youtube.com/watch?v=ZcoweoZ6jpM
+        - :11 to :12
+        - 1:47 to 1:48
+        - 3:47 to 3:48
 
 ## Steve Stevns
 - Atomic Playboys
