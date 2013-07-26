@@ -23,7 +23,15 @@
         - 1:47 to 1:48
         - 3:47 to 3:48
 
+## Quiet Riot
+
+- Come on Feel the Noise
+    - http://www.youtube.com/watch?v=AQoAi4QcW0c
+        - :29 to :30
+        - 
+
 ## Steve Stevns
+
 - Atomic Playboys
 	- http://www.youtube.com/watch?v=2XYAwpVtYrE
 		- :46 to :49
