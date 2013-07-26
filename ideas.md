@@ -28,7 +28,10 @@
 - Come on Feel the Noise
     - http://www.youtube.com/watch?v=AQoAi4QcW0c
         - :29 to :30
-        - 
+        - 1:59 to 2:01
+        - 2:06 to 2:09
+        - 2:26 to 2:28
+        - 4:10 to 4:12
 
 ## Steve Stevns
 
