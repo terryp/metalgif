@@ -2,7 +2,14 @@
 ## Macro Reference
 - http://www.digitaldreamdoor.com/pages/best_metal-hair-art.html
 
+## Blue Oyster Cult
+
+- Dancin in the Ruins
+    - http://www.youtube.com/watch?v=wlVWprYozR8
+        
+
 ## Dio
+
 - Holy Diver
 
 ## Dokken
@@ -16,6 +23,7 @@
     	- 2:22 to 2:30
 
 ## Kiss
+
 - Lick It Up
 
 ## Ozzy Osbource
