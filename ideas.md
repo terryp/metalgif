@@ -7,6 +7,9 @@
 
 ## Dokken
 
+- Breaking the Chains
+    - http://www.youtube.com/watch?v=DETUV4tCHMc
+
 - Dream Warriors
   	- http://www.youtube.com/watch?v=BtR6IrvxeFs
     	- :52 to :56
@@ -14,6 +17,7 @@
     	- 1:42 to 1:46
     	- 1:56 to 1:59
     	- 2:22 to 2:30
+
 
 ## Kiss
 - Lick It Up
@@ -28,6 +32,15 @@
         - :11 to :12
         - 1:47 to 1:48
         - 3:47 to 3:48
+
+## Queensryche
+
+- Queen of the Reich
+    - http://youtu.be/i0_THrxYs1w
+
+- Gonna Get Close to You
+    - http://www.youtube.com/watch?v=0ZhJ_ZR2PK8&list=UUHUJK0yOxOhi9La1E9HniMA
+        - 1:50 to 1:52
 
 ## Quiet Riot
 
