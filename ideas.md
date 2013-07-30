@@ -2,6 +2,13 @@
 ## Macro Reference
 - http://www.digitaldreamdoor.com/pages/best_metal-hair-art.html
 
+## Blue Murder
+- Valley of the Kings
+    - http://www.youtube.com/watch?v=hfsZ4EzSn80
+        - 5:14 to 5:16
+    - http://www.youtube.com/watch?v=GmxK9CS3RV0
+        - 2:28 to 2:24
+
 ## Dio
 - Holy Diver
 
