@@ -7,6 +7,12 @@
 - Dancin in the Ruins
     - http://www.youtube.com/watch?v=wlVWprYozR8
         
+## Blue Murder
+- Valley of the Kings
+    - http://www.youtube.com/watch?v=hfsZ4EzSn80
+        - 5:14 to 5:16
+    - http://www.youtube.com/watch?v=GmxK9CS3RV0
+        - 2:28 to 2:24
 
 ## Dio
 
@@ -24,7 +30,6 @@
     	- 1:42 to 1:46
     	- 1:56 to 1:59
     	- 2:22 to 2:30
-
 
 ## Kiss
 
