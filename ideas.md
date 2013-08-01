@@ -35,7 +35,7 @@
 
 - Lick It Up
 
-## Ozzy Osbource
+## Ozzy Osbourne
 
 - Shot in the Dark
 	- http://www.youtube.com/watch?v=XjYJIDyFofk
