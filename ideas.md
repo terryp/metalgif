@@ -29,6 +29,14 @@
     - http://www.youtube.com/watch?v=GmxK9CS3RV0
         - 2:28 to 2:24
 
+## David Lee Roth
+
+- Just Like Paradise
+    - http://www.youtube.com/watch?v=I4qh_9vH1Ww
+        - 1:39 to 1:41
+        - 3:12 to 3:13
+        - 3:21 to 3:23
+
 ## Dio
 
 - Holy Diver
