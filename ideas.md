@@ -69,3 +69,16 @@
 ## WASP 
 
 - I Wanna Be Somebody
+
+## Whitesnake
+
+ - Still of the Night
+    - http://www.youtube.com/watch?v=r0oZejszyH0
+        - 1:37 to 1:41
+        - 3:43 to 3:47
+
+## Winger
+
+  - Seventeen
+    - http://www.youtube.com/watch?v=GlN3oEjMpUQ
+        - 3:48 to 3:50
