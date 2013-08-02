@@ -11,14 +11,20 @@
 
 ## Blue Oyster Cult
 
+- Don't Fear the Reaper
+    - http://www.youtube.com/watch?v=ZdXfkkyI1nQ
+        - :37 to :39
+
 - Dancin in the Ruins
     - http://www.youtube.com/watch?v=wlVWprYozR8
+        - 1:10 to 1:11
+        - 2:13 to 2:14
         
 ## Blue Murder
 - Valley of the Kings
     - http://www.youtube.com/watch?v=hfsZ4EzSn80
         - 5:14 to 5:16
-        
+
 - Jelly Roll
     - http://www.youtube.com/watch?v=GmxK9CS3RV0
         - 2:28 to 2:24
@@ -44,11 +50,26 @@
 
 - Lick It Up
 
+## Motley Crue
+
+- Looks That Kill
+    - http://www.youtube.com/watch?v=tXRC5UPWDk4
+        - :10 to :12
+        - :46 to :49
+        - 1:43 to 1:45
+        - 2:01 to 2:02
+        - 2:32 to 2:34
+
 ## Ozzy Osbourne
+
+- Secret Loser
+    - http://www.youtube.com/watch?v=EMYjK7kjziY
+        - 
 
 - Shot in the Dark
 	- http://www.youtube.com/watch?v=XjYJIDyFofk
 		- :54 to 1:00
+
 - Crazy Train
     - http://www.youtube.com/watch?v=ZcoweoZ6jpM
         - :11 to :12
