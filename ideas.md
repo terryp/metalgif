@@ -29,6 +29,10 @@
 ## Kiss
 - Lick It Up
 
+## Mr Big
+
+- Addicted to that Rush
+
 ## Ozzy Osbource
 
 - Shot in the Dark
