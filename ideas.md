@@ -21,6 +21,7 @@
         - 2:13 to 2:14
         
 ## Blue Murder
+
 - Valley of the Kings
     - http://www.youtube.com/watch?v=hfsZ4EzSn80
         - 5:14 to 5:16
@@ -28,6 +29,13 @@
 - Jelly Roll
     - http://www.youtube.com/watch?v=GmxK9CS3RV0
         - 2:28 to 2:24
+
+## Cinderella 
+
+- Shake Me
+    - http://www.youtube.com/watch?v=ptPekKOigkQ
+        - 
+
 
 ## David Lee Roth
 
@@ -72,11 +80,11 @@
 
 - Secret Loser
     - http://www.youtube.com/watch?v=EMYjK7kjziY
-        - 
 
 - Shot in the Dark
 	- http://www.youtube.com/watch?v=XjYJIDyFofk
 		- :54 to 1:00
+        - 1:27 to 1:33
 
 - Crazy Train
     - http://www.youtube.com/watch?v=ZcoweoZ6jpM
