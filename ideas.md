@@ -29,9 +29,19 @@
 ## Kiss
 - Lick It Up
 
+## Kix
+- Don't Close Your Eyes
+    - http://www.youtube.com/watch?v=wcEu47mR43U
+        - 3:52 to 3:56
+
 ## Mr Big
 
 - Addicted to that Rush
+    - http://www.youtube.com/watch?v=Ck3MuHqYRLM
+        - 1:24 to 1:26
+        - 2:20 to 2:26
+        - 2:46 to 2:50
+        - 4:18 to 4:20
 
 ## Ozzy Osbource
 
@@ -63,6 +73,12 @@
         - 2:26 to 2:28
         - 4:10 to 4:12
 
+## Saigon Kick
+
+- Love is on the Way
+    - http://www.youtube.com/watch?v=MclSSoOBt3Q
+        - 3:48 to 3:52 
+
 ## Steve Stevns
 
 - Atomic Playboys
@@ -86,3 +102,10 @@
   - Seventeen
     - http://www.youtube.com/watch?v=GlN3oEjMpUQ
         - 3:48 to 3:50
+
+## Y & T
+
+  - Summertime Girls
+    - http://www.youtube.com/watch?v=8b2SVxOPwww
+        - 0:15 to 0:23
+        - 1:22 to 1:23
