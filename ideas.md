@@ -34,8 +34,8 @@
 
 - Shake Me
     - http://www.youtube.com/watch?v=ptPekKOigkQ
-        - 
-
+        - :42 to :43
+        - :47 to :48
 
 ## David Lee Roth
 
@@ -83,8 +83,13 @@
 
 - Shot in the Dark
 	- http://www.youtube.com/watch?v=XjYJIDyFofk
+        - :47 to :50
 		- :54 to 1:00
-        - 1:27 to 1:33
+        - 1:11 to 1:13
+        - 1:28 to 1:33
+        - 1:54 to 1:55
+        - 2:01 to 2:02
+        - 2:32 to 2:33
 
 - Crazy Train
     - http://www.youtube.com/watch?v=ZcoweoZ6jpM
@@ -111,12 +116,28 @@
         - 2:26 to 2:28
         - 4:10 to 4:12
 
+## Scorpions 
+
+- No One Like You
+    - http://www.youtube.com/watch?v=yaKkFz7G6rk
+        - 2:21 to 2:22
+        - 3:22 to 3:24
+
 ## Steve Stevns
 
 - Atomic Playboys
 	- http://www.youtube.com/watch?v=2XYAwpVtYrE
 		- :46 to :49
 		- 1:03 to 1:06
+
+## Warrant
+
+- Down Boys
+    - http://www.youtube.com/watch?v=0RHENr6Xe70
+        - :24 to :27
+        - 1:41 to 1:44
+        - 1:53 to 1:55
+        - 2:00 to 2:01
 
 ## WASP 
 
