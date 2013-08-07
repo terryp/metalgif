@@ -73,6 +73,13 @@
 
 ## Motley Crue
 
+- Girls, Girls, Girls
+    - http://www.youtube.com/watch?v=d2XdmyBtCRQ
+        - 2:52 to 2:54
+        - 3:15 to 3:16
+        - 3:24 to 3:25
+        - 3:54 to 3:56
+
 - Looks That Kill
     - http://www.youtube.com/watch?v=tXRC5UPWDk4
         - :10 to :12
@@ -91,6 +98,10 @@
         - 4:18 to 4:20
 
 ## Ozzy Osbourne
+
+- No More Tears
+    - http://www.youtube.com/watch?v=TqYEQVqcKCg
+        - 2:56 to 3:00
 
 - Secret Loser
     - http://www.youtube.com/watch?v=EMYjK7kjziY
