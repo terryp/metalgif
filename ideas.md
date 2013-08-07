@@ -43,6 +43,17 @@
     - http://www.youtube.com/watch?v=GmxK9CS3RV0
         - 2:28 to 2:24
 
+## Bulletboys
+
+- For the Love of Money
+    - http://www.youtube.com/watch?v=GqxaCG9PBOs
+        - :48 to :50
+        - :56 to :57
+        - 1:19 to 1:20
+        - 1:50 to 1:51
+        - 2:07 to 2:08
+        - 2:54 to 2:55
+
 ## Cinderella 
 
 - Shake Me
@@ -86,6 +97,13 @@
 
 ## Motley Crue
 
+- Girls, Girls, Girls
+    - http://www.youtube.com/watch?v=d2XdmyBtCRQ
+        - 2:52 to 2:54
+        - 3:15 to 3:16
+        - 3:24 to 3:25
+        - 3:54 to 3:56
+
 - Looks That Kill
     - http://www.youtube.com/watch?v=tXRC5UPWDk4
         - :10 to :12
@@ -104,6 +122,10 @@
         - 4:18 to 4:20
 
 ## Ozzy Osbourne
+
+- No More Tears
+    - http://www.youtube.com/watch?v=TqYEQVqcKCg
+        - 2:56 to 3:00
 
 - Secret Loser
     - http://www.youtube.com/watch?v=EMYjK7kjziY
