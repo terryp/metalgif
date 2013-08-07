@@ -7,6 +7,19 @@
 - Dancin in the Ruins
     - http://www.youtube.com/watch?v=wlVWprYozR8
         
+## Billy Squier (not sure if this counts)
+- Rock Me Tonight
+    - http://www.youtube.com/watch?v=fR0j7sModCI
+        - 0:28 to 0:38
+        - 0:48 to 0:49
+        - 0:53 to 0:54
+        - 1:22 to 1:24
+        - 1:25 to 1:27
+        - 1:58 to 2:00
+        - 2:35 to 2:37
+        - 3:41 to 3:43
+        - 4:18 to 4:20
+
 ## Blue Murder
 - Valley of the Kings
     - http://www.youtube.com/watch?v=hfsZ4EzSn80
