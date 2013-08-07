@@ -30,6 +30,17 @@
     - http://www.youtube.com/watch?v=GmxK9CS3RV0
         - 2:28 to 2:24
 
+## Bulletboys
+
+- For the Love of Money
+    - http://www.youtube.com/watch?v=GqxaCG9PBOs
+        - :48 to :50
+        - :56 to :57
+        - 1:19 to 1:20
+        - 1:50 to 1:51
+        - 2:07 to 2:08
+        - 2:54 to 2:55
+
 ## Cinderella 
 
 - Shake Me
