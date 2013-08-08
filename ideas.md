@@ -20,7 +20,8 @@
         - 1:10 to 1:11
         - 2:13 to 2:14
         
-## Billy Squier (not sure if this counts)
+## Billy Squier
+
 - Rock Me Tonight
     - http://www.youtube.com/watch?v=fR0j7sModCI
         - 0:28 to 0:38
