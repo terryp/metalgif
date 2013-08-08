@@ -9,7 +9,7 @@
 - http://imgflip.com/gifgenerator
     - Go nuts
 
-## Aldo NOva
+## Aldo Nova
 - Fantasy
     - http://www.youtube.com/watch?v=vPQgfaB3S1c
         - 1:18 to 1:22
@@ -20,17 +20,6 @@
     - http://www.youtube.com/watch?v=5u0yiplamdw
         - 1:32 to 1:34
 
-## Blue Oyster Cult
-
-- Don't Fear the Reaper
-    - http://www.youtube.com/watch?v=ZdXfkkyI1nQ
-        - :37 to :39
-
-- Dancin in the Ruins
-    - http://www.youtube.com/watch?v=wlVWprYozR8
-        - 1:10 to 1:11
-        - 2:13 to 2:14
-        
 ## Billy Squier 
 - Rock Me Tonight
     - http://www.youtube.com/watch?v=fR0j7sModCI
@@ -53,6 +42,17 @@
 - Jelly Roll
     - http://www.youtube.com/watch?v=GmxK9CS3RV0
         - 2:28 to 2:24
+
+## Blue Oyster Cult
+
+- Don't Fear the Reaper
+    - http://www.youtube.com/watch?v=ZdXfkkyI1nQ
+        - :37 to :39
+
+- Dancin in the Ruins
+    - http://www.youtube.com/watch?v=wlVWprYozR8
+        - 1:10 to 1:11
+        - 2:13 to 2:14
 
 ## Bulletboys
 
