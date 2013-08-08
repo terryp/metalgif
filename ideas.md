@@ -9,6 +9,17 @@
 - http://imgflip.com/gifgenerator
     - Go nuts
 
+## Aldo NOva
+- Fantasy
+    - http://www.youtube.com/watch?v=vPQgfaB3S1c
+        - 1:18 to 1:22
+        - 2:08 to 2:10
+
+## Bang Tango
+- Someone Like You
+    - http://www.youtube.com/watch?v=5u0yiplamdw
+        - 1:32 to 1:34
+
 ## Blue Oyster Cult
 
 - Don't Fear the Reaper
@@ -20,8 +31,7 @@
         - 1:10 to 1:11
         - 2:13 to 2:14
         
-## Billy Squier
-
+## Billy Squier 
 - Rock Me Tonight
     - http://www.youtube.com/watch?v=fR0j7sModCI
         - 0:28 to 0:38
@@ -122,6 +132,7 @@
         - 2:46 to 2:50
         - 4:18 to 4:20
 
+<<<<<<< HEAD
 ## Ozzy Osbourne
 
 - No More Tears
@@ -130,6 +141,18 @@
 
 - Secret Loser
     - http://www.youtube.com/watch?v=EMYjK7kjziY
+=======
+## Nitro
+- Freight Train
+    - I'll top that Vai three neck w/ a Michael Biatoi (Chicago's own) four neck
+    - http://www.youtube.com/watch?v=cDcBKVKQizg 
+        - 0:11 to 0:14
+        - 2:28 to 2:30
+        - 2:28 to 3:03
+        - 3:08 to 3:14
+
+## Ozzy Osbource
+>>>>>>> mjladd-master
 
 - Shot in the Dark
 	- http://www.youtube.com/watch?v=XjYJIDyFofk
@@ -186,6 +209,7 @@
 		- :46 to :49
 		- 1:03 to 1:06
 
+<<<<<<< HEAD
 ## Warrant
 
 - Down Boys
@@ -194,6 +218,18 @@
         - 1:41 to 1:44
         - 1:53 to 1:55
         - 2:00 to 2:01
+=======
+## Vinnie Vincent Invasion
+- Boys are Gonna Rock (the real guitar solo, although it sounds like a 'shred' video)
+    - http://www.youtube.com/watch?v=qS8PMYy1CLM
+        - 0:11 to 0:14
+        - 0:52 to 0:55
+        - 1:14 to 1:18
+        - 3:52 to 3:54
+        - 4:07 to 4:12 -> Flaming stuntman!!
+        - really the entire last minute of this is insane, so much pyro
+            
+>>>>>>> mjladd-master
 
 ## WASP 
 
