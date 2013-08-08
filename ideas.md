@@ -209,7 +209,6 @@
 		- :46 to :49
 		- 1:03 to 1:06
 
-<<<<<<< HEAD
 ## Warrant
 
 - Down Boys
@@ -218,7 +217,8 @@
         - 1:41 to 1:44
         - 1:53 to 1:55
         - 2:00 to 2:01
-=======
+
+
 ## Vinnie Vincent Invasion
 - Boys are Gonna Rock (the real guitar solo, although it sounds like a 'shred' video)
     - http://www.youtube.com/watch?v=qS8PMYy1CLM
@@ -228,8 +228,6 @@
         - 3:52 to 3:54
         - 4:07 to 4:12 -> Flaming stuntman!!
         - really the entire last minute of this is insane, so much pyro
-            
->>>>>>> mjladd-master
 
 ## WASP 
 
