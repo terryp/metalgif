@@ -2,10 +2,12 @@
 ## Macro Reference
 - http://www.digitaldreamdoor.com/pages/best_metal-hair-art.html
 
-## Blue Oyster Cult
+## Process
 
-- Dancin in the Ruins
-    - http://www.youtube.com/watch?v=wlVWprYozR8
+- http://www.clipconverter.cc/
+    - Download the mobile version
+- http://imgflip.com/gifgenerator
+    - Go nuts
         
 ## Aldo NOva
 - Fantasy
@@ -38,6 +40,11 @@
     - http://www.youtube.com/watch?v=GmxK9CS3RV0
         - 2:28 to 2:24
 
+## Blue Oyster Cult
+
+- Dancin in the Ruins
+    - http://www.youtube.com/watch?v=wlVWprYozR8
+    
 ## Dio
 
 - Holy Diver
