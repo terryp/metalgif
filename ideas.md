@@ -8,19 +8,22 @@
     - Download the mobile version
 - http://imgflip.com/gifgenerator
     - Go nuts
-
+        
 ## Aldo Nova
+
 - Fantasy
     - http://www.youtube.com/watch?v=vPQgfaB3S1c
         - 1:18 to 1:22
         - 2:08 to 2:10
 
 ## Bang Tango
+
 - Someone Like You
     - http://www.youtube.com/watch?v=5u0yiplamdw
         - 1:32 to 1:34
 
 ## Billy Squier 
+
 - Rock Me Tonight
     - http://www.youtube.com/watch?v=fR0j7sModCI
         - 0:28 to 0:38
@@ -87,6 +90,13 @@
         - 1:26 to 1:28
         - 1:40 to 1:44
         - 3:00 to 3:01
+    
+## Dangerous Toys
+- Scared
+    - http://www.youtube.com/watch?v=jVqeoI4klLE
+        - 0:21 to 0:22
+        - 1:18 to 1:19
+        - 2:07 to 2:10
 
 ## Dio
 
@@ -105,11 +115,19 @@
     	- 1:56 to 1:59
     	- 2:22 to 2:30
 
+
+## Fastway
+- Trick or Treat
+    - http://www.youtube.com/watch?v=taV_qfVYnrg
+
+## Helloween
+
 ## Kiss
 
 - Lick It Up
 
 ## Kix
+
 - Don't Close Your Eyes
     - http://www.youtube.com/watch?v=wcEu47mR43U
         - 3:52 to 3:56
@@ -130,6 +148,15 @@
         - 1:43 to 1:45
         - 2:01 to 2:02
         - 2:32 to 2:34
+        
+## Love/Hate
+
+- Why do you think they call it dope
+    - http://www.youtube.com/watch?v=HtAxLs7nmiU
+        - 0:29 to 0:30
+        - 1:01 to 1:03
+        - 1:41 to 1:43
+        - 1:47 to 1:48
 
 ## Mr Big
 
@@ -166,6 +193,7 @@
     - http://www.youtube.com/watch?v=EMYjK7kjziY
 
 ## Nitro
+
 - Freight Train
     - I'll top that Vai three neck w/ a Michael Biatoi (Chicago's own) four neck
     - http://www.youtube.com/watch?v=cDcBKVKQizg 
@@ -226,6 +254,7 @@
 
 
 ## Vinnie Vincent Invasion
+
 - Boys are Gonna Rock (the real guitar solo, although it sounds like a 'shred' video)
     - http://www.youtube.com/watch?v=qS8PMYy1CLM
         - 0:11 to 0:14
