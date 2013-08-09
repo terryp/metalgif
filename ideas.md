@@ -9,18 +9,21 @@
 - http://imgflip.com/gifgenerator
     - Go nuts
         
-## Aldo NOva
+## Aldo Nova
+
 - Fantasy
     - http://www.youtube.com/watch?v=vPQgfaB3S1c
         - 1:18 to 1:22
         - 2:08 to 2:10
 
 ## Bang Tango
+
 - Someone Like You
     - http://www.youtube.com/watch?v=5u0yiplamdw
         - 1:32 to 1:34
 
 ## Billy Squier 
+
 - Rock Me Tonight
     - http://www.youtube.com/watch?v=fR0j7sModCI
         - 0:28 to 0:38
@@ -34,6 +37,7 @@
         - 4:18 to 4:20
 
 ## Blue Murder
+
 - Valley of the Kings
     - http://www.youtube.com/watch?v=hfsZ4EzSn80
         - 5:14 to 5:16
@@ -45,6 +49,13 @@
 - Dancin in the Ruins
     - http://www.youtube.com/watch?v=wlVWprYozR8
     
+## Dangerous Toys
+- Scared
+    - http://www.youtube.com/watch?v=jVqeoI4klLE
+        - 0:21 to 0:22
+        - 1:18 to 1:19
+        - 2:07 to 2:10
+
 ## Dio
 
 - Holy Diver
@@ -62,14 +73,31 @@
     	- 1:56 to 1:59
     	- 2:22 to 2:30
 
+
+## Fastway
+- Trick or Treat
+    - http://www.youtube.com/watch?v=taV_qfVYnrg
+
+## Helloween
+
 ## Kiss
 
 - Lick It Up
 
 ## Kix
+
 - Don't Close Your Eyes
     - http://www.youtube.com/watch?v=wcEu47mR43U
         - 3:52 to 3:56
+
+## Love/Hate
+
+- Why do you think they call it dope
+    - http://www.youtube.com/watch?v=HtAxLs7nmiU
+        - 0:29 to 0:30
+        - 1:01 to 1:03
+        - 1:41 to 1:43
+        - 1:47 to 1:48
 
 ## Mr Big
 
@@ -81,6 +109,7 @@
         - 4:18 to 4:20
 
 ## Nitro
+
 - Freight Train
     - I'll top that Vai three neck w/ a Michael Biatoi (Chicago's own) four neck
     - http://www.youtube.com/watch?v=cDcBKVKQizg 
@@ -133,6 +162,7 @@
 		- 1:03 to 1:06
 
 ## Vinnie Vincent Invasion
+
 - Boys are Gonna Rock (the real guitar solo, although it sounds like a 'shred' video)
     - http://www.youtube.com/watch?v=qS8PMYy1CLM
         - 0:11 to 0:14
