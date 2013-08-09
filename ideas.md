@@ -80,6 +80,14 @@
         - 3:12 to 3:13
         - 3:21 to 3:23
 
+## Def Leppard
+
+- Photograph
+    - http://www.youtube.com/watch?v=VZ5bS3_BCDs
+        - 1:26 to 1:28
+        - 1:40 to 1:44
+        - 3:00 to 3:01
+
 ## Dio
 
 - Holy Diver
@@ -132,32 +140,12 @@
         - 2:46 to 2:50
         - 4:18 to 4:20
 
-<<<<<<< HEAD
 ## Ozzy Osbourne
 
-- No More Tears
-    - http://www.youtube.com/watch?v=TqYEQVqcKCg
-        - 2:56 to 3:00
-
-- Secret Loser
-    - http://www.youtube.com/watch?v=EMYjK7kjziY
-=======
-## Nitro
-- Freight Train
-    - I'll top that Vai three neck w/ a Michael Biatoi (Chicago's own) four neck
-    - http://www.youtube.com/watch?v=cDcBKVKQizg 
-        - 0:11 to 0:14
-        - 2:28 to 2:30
-        - 2:28 to 3:03
-        - 3:08 to 3:14
-
-## Ozzy Osbource
->>>>>>> mjladd-master
-
 - Shot in the Dark
-	- http://www.youtube.com/watch?v=XjYJIDyFofk
+    - http://www.youtube.com/watch?v=XjYJIDyFofk
         - :47 to :50
-		- :54 to 1:00
+        - :54 to 1:00
         - 1:11 to 1:13
         - 1:28 to 1:33
         - 1:54 to 1:55
@@ -169,6 +157,22 @@
         - :11 to :12
         - 1:47 to 1:48
         - 3:47 to 3:48
+
+- No More Tears
+    - http://www.youtube.com/watch?v=TqYEQVqcKCg
+        - 2:56 to 3:00
+
+- Secret Loser
+    - http://www.youtube.com/watch?v=EMYjK7kjziY
+
+## Nitro
+- Freight Train
+    - I'll top that Vai three neck w/ a Michael Biatoi (Chicago's own) four neck
+    - http://www.youtube.com/watch?v=cDcBKVKQizg 
+        - 0:11 to 0:14
+        - 2:28 to 2:30
+        - 2:28 to 3:03
+        - 3:08 to 3:14
 
 ## Queensryche
 
