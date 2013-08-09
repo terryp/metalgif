@@ -2,12 +2,11 @@
 ## Macro Reference
 - http://www.digitaldreamdoor.com/pages/best_metal-hair-art.html
 
-## Aldo NOva
+## Aldo Nova
 - Fantasy
     - http://www.youtube.com/watch?v=vPQgfaB3S1c
         - 1:18 to 1:22
         - 2:08 to 2:10
-        - 
 
 ## Bang Tango
 - Someone Like You
@@ -34,6 +33,13 @@
     - http://www.youtube.com/watch?v=GmxK9CS3RV0
         - 2:28 to 2:24
 
+## Dangerous Toys
+- Scared
+    - http://www.youtube.com/watch?v=jVqeoI4klLE
+        - 0:21 to 0:22
+        - 1:18 to 1:19
+        - 2:07 to 2:10
+
 ## Dio
 - Holy Diver
 
@@ -50,6 +56,10 @@
     	- 1:56 to 1:59
     	- 2:22 to 2:30
 
+## Fastway
+- http://www.youtube.com/watch?v=taV_qfVYnrg
+
+## Helloween
 
 ## Kiss
 - Lick It Up
@@ -58,6 +68,14 @@
 - Don't Close Your Eyes
     - http://www.youtube.com/watch?v=wcEu47mR43U
         - 3:52 to 3:56
+
+## Love/Hate
+- Why do you think they call it dope
+    - http://www.youtube.com/watch?v=HtAxLs7nmiU
+        - 0:29 to 0:30
+        - 1:01 to 1:03
+        - 1:41 to 1:43
+        - 1:47 to 1:48
 
 ## Mr Big
 
