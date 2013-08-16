@@ -243,11 +243,28 @@
 		- :46 to :49
 		- 1:03 to 1:06
 
+## Suicidal Tendencies
+
+- Trip At The Brain
+    - http://www.youtube.com/watch?v=XDheLViZbrk
+        - :20 to :22
+        - 2:24 to 2:27
+        - 3:09 to 3:12
+        - 4:35 to 4:37
+
 ## Survivor
 
 - I Can't Hold Back
     - http://www.youtube.com/watch?v=GaMcsKtBDwE
-        - 
+        - :10 to :12
+        - :32 to :33
+        - :39 to :40
+        - 1:03 to 1:05
+        - 1:24 to 1:30
+        - 1:33 to 1:36
+        - 3:17 to 3:20
+        - 3:25 to 3:29
+
 
 ## Warrant
 
