@@ -243,6 +243,12 @@
 		- :46 to :49
 		- 1:03 to 1:06
 
+## Survivor
+
+- I Can't Hold Back
+    - http://www.youtube.com/watch?v=GaMcsKtBDwE
+        - 
+
 ## Warrant
 
 - Down Boys
