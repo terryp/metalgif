@@ -20,7 +20,12 @@
 
 - Someone Like You
     - http://www.youtube.com/watch?v=5u0yiplamdw
+        - 0:11 to 0:12
+        - 0:24 to 0:26
+        - 0:30 to 0:35
+        - 1:22 to 1:24
         - 1:32 to 1:34
+        - 1:37 to 1:38
 
 ## Billy Squier 
 
@@ -148,6 +153,16 @@
         - 1:43 to 1:45
         - 2:01 to 2:02
         - 2:32 to 2:34
+
+- Too Young to Fall in Love
+    - http://www.youtube.com/watch?v=4WU6DpFFWTM
+        - :31 to :34
+        - 1:01 to 1:07
+        - 1:31 to 1:33 / twirl
+        - 1:45 to 1:47 / twirl
+        - 1:56 to 1:57
+        - 2:10 to 2:12
+        - 2:21 to 2:22
         
 ## Love/Hate
 
