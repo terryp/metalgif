@@ -236,6 +236,17 @@
         - 2:21 to 2:22
         - 3:22 to 3:24
 
+- Rock You Like a Hurricane
+    - http://www.youtube.com/watch?v=sxdmw4tJJ1Y
+        - :04 to :05
+        - :31 to :32
+        - :49 to :52
+        - 1:09 to 1:11
+        - 1:43 to 1:46
+        - 2:31 to 2:32
+        - 3:37 to 3:39
+        
+
 ## Steve Stevns
 
 - Atomic Playboys
