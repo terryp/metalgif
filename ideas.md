@@ -323,6 +323,19 @@
 
 - I Wanna Be Somebody
 
+## White Lion
+
+- Little Fighter
+    - http://www.youtube.com/watch?v=DaT8is6b3QA
+        - :04 to :06
+        - :37 to :39
+        - :49 to :50
+        - 1:19 to 1:23
+        - 1:32 to 1:34
+        - 2:04 to 2:07
+        - 3:29 to 3:32
+        - 
+
 ## Whitesnake
 
  - Still of the Night
