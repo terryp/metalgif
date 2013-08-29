@@ -1,4 +1,3 @@
-
 ## Macro Reference
 - http://www.digitaldreamdoor.com/pages/best_metal-hair-art.html
 
@@ -147,6 +146,12 @@
 ## Kiss
 
 - Lick It Up
+- Heaven's on Fire
+    - https://www.youtube.com/watch?v=EZjevnnkA20
+       - 0:00 to 0:03
+       - 0:46 to 0:48
+       - 1:23 to 1:25
+       - 3:08 to 3:10
 
 ## Kix
 
