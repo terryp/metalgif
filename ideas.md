@@ -99,9 +99,15 @@
 ## Dangerous Toys
 - Scared
     - http://www.youtube.com/watch?v=jVqeoI4klLE
+        - 0:16 to 0:17
         - 0:21 to 0:22
+        - 1:11 to 1:13
         - 1:18 to 1:19
+        - 1:53 to 1:58
         - 2:07 to 2:10
+        - 2:26 to 2:28
+        - 3:09 to 3:11
+
 
 ## Dio
 
@@ -147,6 +153,19 @@
 ## Kiss
 
 - Lick It Up
+
+- Turn on the Night
+    - http://www.youtube.com/watch?v=jbDQYdln1UM
+        - :26 to :28
+        - :44 to :48
+        - 1:01 to 1:05
+        - 1:28 to 1:30
+        - 1:37 to 1:38
+        - 1:51 to 1:52
+        - 2:12 to 2:13
+        - 2:23 to 2:24
+        - 2:55 to 2:57
+        - 3:05 to 3:06
 
 ## Kix
 
