@@ -60,7 +60,10 @@
 - Dancin in the Ruins
     - http://www.youtube.com/watch?v=wlVWprYozR8
         - 1:10 to 1:11
+        - 2:11 to 2:13
         - 2:13 to 2:14
+        - 2:34 to 2:36
+        - 
 
 ## Bulletboys
 
@@ -218,6 +221,16 @@
         - 2:46 to 2:50
         - 4:18 to 4:20
 
+## Nelson
+
+- Love and Affection
+    - http://www.youtube.com/watch?v=x1W6-ErrHls
+        - :27 to :29
+        - 2:08 to 2:12
+        - 2:12 to 2:13
+        - 3:00 to 3:03
+        - 
+
 ## Ozzy Osbourne
 
 - Shot in the Dark
@@ -327,6 +340,20 @@
         - 3:17 to 3:20
         - 3:25 to 3:29
 
+## Tesla
+
+- Love Song
+    - http://www.youtube.com/watch?v=l2q_-xN2N54
+        - :13 to :14
+        - :29 to :30
+        - :44 to :45
+        - 1:20 to 1:22
+        - 1:24 to 1:25
+        - 1:25 to 1:27
+        - 1:52 to 1:53
+        - 2:35 to 2:#6
+        - 2:39 to 2:40
+        - 3:17 to 3:18
 
 ## Warrant
 
@@ -337,6 +364,19 @@
         - 1:53 to 1:55
         - 2:00 to 2:01
 
+
+## Van Halen
+- Jump
+    - http://www.youtube.com/watch?v=wlq0lYB3iSM
+        - :14 to :17
+        - :17 to :18
+        - :24 to :25
+        - :27 to :28
+        - 1:41 to 1:42
+        - 1:52 to 1:53
+        - 2:35 to 2:36
+        - 3:38 to 3:40
+        
 
 ## Vinnie Vincent Invasion
 
