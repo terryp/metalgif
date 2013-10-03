@@ -304,6 +304,8 @@
 
 - Love is on the Way
     - http://www.youtube.com/watch?v=MclSSoOBt3Q
+        - :10 to :12
+        - :30 to 34
         - 1:23 to 1:25
         - 2:03 to 2:04
         - 3:48 to 3:52 
