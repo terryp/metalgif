@@ -142,8 +142,23 @@
         - 
 
 ## Fastway
+
 - Trick or Treat
     - http://www.youtube.com/watch?v=taV_qfVYnrg
+
+## The Firm
+
+- Radioactive
+    - http://www.youtube.com/watch?v=3973tfsllqw
+        - :01 to :02
+        - :05 to :06
+        - :18 to :19
+        - :55 to :56
+        - 1:48 to 1:49
+        - 1:53 to 1:54
+        - 2:12 to 2:13
+        - 2:34 to 2:35
+
 
 ## Helloween
 
