@@ -191,6 +191,15 @@
     - http://www.youtube.com/watch?v=wcEu47mR43U
         - 3:52 to 3:56
 
+## Love/Hate
+
+- Why do you think they call it dope
+    - http://www.youtube.com/watch?v=HtAxLs7nmiU
+        - 0:29 to 0:30
+        - 1:01 to 1:03
+        - 1:41 to 1:43
+        - 1:47 to 1:48
+
 ## Motley Crue
 
 - Girls, Girls, Girls
@@ -217,15 +226,6 @@
         - 1:56 to 1:57
         - 2:10 to 2:12
         - 2:21 to 2:22
-        
-## Love/Hate
-
-- Why do you think they call it dope
-    - http://www.youtube.com/watch?v=HtAxLs7nmiU
-        - 0:29 to 0:30
-        - 1:01 to 1:03
-        - 1:41 to 1:43
-        - 1:47 to 1:48
 
 ## Mr Big
 
@@ -245,6 +245,16 @@
         - 2:12 to 2:13
         - 3:00 to 3:03
         - 
+
+## Nitro
+
+- Freight Train
+    - I'll top that Vai three neck w/ a Michael Biatoi (Chicago's own) four neck
+    - http://www.youtube.com/watch?v=cDcBKVKQizg 
+        - 0:11 to 0:14
+        - 2:28 to 2:30
+        - 2:28 to 3:03
+        - 3:08 to 3:14
 
 ## Ozzy Osbourne
 
@@ -270,16 +280,6 @@
 
 - Secret Loser
     - http://www.youtube.com/watch?v=EMYjK7kjziY
-
-## Nitro
-
-- Freight Train
-    - I'll top that Vai three neck w/ a Michael Biatoi (Chicago's own) four neck
-    - http://www.youtube.com/watch?v=cDcBKVKQizg 
-        - 0:11 to 0:14
-        - 2:28 to 2:30
-        - 2:28 to 3:03
-        - 3:08 to 3:14
 
 ## Queensryche
 
@@ -344,6 +344,17 @@
 
 ## Survivor
 
+- Burning Heart
+    - http://www.youtube.com/watch?v=Kc71KZG87X4
+        - :12 to :15
+        - :44 to :45
+        - :46 to :47
+        - :52 to :54
+        - 1:25 to 1:27
+        - 1:28 to 1:30
+        - 2:17 to 2:19
+        - 
+
 - I Can't Hold Back
     - http://www.youtube.com/watch?v=GaMcsKtBDwE
         - :10 to :12
@@ -398,6 +409,7 @@
 - Boys are Gonna Rock (the real guitar solo, although it sounds like a 'shred' video)
     - http://www.youtube.com/watch?v=qS8PMYy1CLM
         - 0:11 to 0:14
+        - 0:43 t0 :44
         - 0:52 to 0:55
         - 1:14 to 1:18
         - 3:52 to 3:54
