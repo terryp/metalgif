@@ -1,3 +1,4 @@
+
 ## Macro Reference
 - http://www.digitaldreamdoor.com/pages/best_metal-hair-art.html
 
@@ -152,12 +153,6 @@
 ## Kiss
 
 - Lick It Up
-- Heaven's on Fire
-    - https://www.youtube.com/watch?v=EZjevnnkA20
-       - 0:00 to 0:03
-       - 0:46 to 0:48
-       - 1:23 to 1:25
-       - 3:08 to 3:10
 
 - Turn on the Night
     - http://www.youtube.com/watch?v=jbDQYdln1UM
@@ -353,6 +348,18 @@
         - 3:52 to 3:54
         - 4:07 to 4:12 -> Flaming stuntman!!
         - really the entire last minute of this is insane, so much pyro
+
+## Vixen
+
+- Edge of a Broken Heart
+    - http://www.youtube.com/watch?v=mQOmDUnt8Hs
+        - :03 - :04
+        - :47 to :49
+        - :55 to :57
+        - 1:06 to 1:08
+        - 1:27 to 1:28
+        - 2:22 to 2:23
+        - 
 
 ## WASP 
 
