@@ -165,7 +165,18 @@
 - Welcome to the Jungle
     - http://www.youtube.com/watch?v=o1tj2zJ2Wvg
         - :15 to :16
-        - 
+        - :34 to :36
+        - :39 to :40
+        - :40 to :41
+        - :41 to :42
+        - :53 to :55
+        - 1:01 to 1:03
+        - 1:04 to 1:05
+        - 1:11 to 1:12
+        - 1:17 to 1:18
+        - 2:39 to 2:40
+        - 3:26 to 3:27
+        - 4:11 to 4:12
 
 ## Helloween
 
