@@ -1,6 +1,7 @@
 
 ## Macro Reference
 - http://www.digitaldreamdoor.com/pages/best_metal-hair-art.html
+- http://dj-funktual.hubpages.com/hub/The-100-Greatest-Hair-Metal-Songs
 
 ## Process
 
@@ -159,6 +160,12 @@
         - 2:12 to 2:13
         - 2:34 to 2:35
 
+## Guns N Roses 
+
+- Welcome to the Jungle
+    - http://www.youtube.com/watch?v=o1tj2zJ2Wvg
+        - :15 to :16
+        - 
 
 ## Helloween
 
@@ -166,7 +173,7 @@
 
 - Run to the Hills
     - http://www.youtube.com/watch?v=geHLdg_VNww
-        - 
+
 
 ## Kiss
 
