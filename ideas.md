@@ -483,8 +483,6 @@
         - 1:37 to 1:41
         - 3:43 to 3:47
 
-
-
 ## Winger
 
   - Seventeen
@@ -493,7 +491,18 @@
 
 ## Y & T
 
-  - Summertime Girls
+- Don't Stop Running
+    - http://www.youtube.com/watch?v=uzTElElg9Vk
+        - 1:01 to 1:02
+        - 1:18 to 1:20
+        - 1:46 to 1:47
+        - 2:52 to 2:53
+        - 3:25 to 3:27
+        - 3:40 to 3:41
+        - 3:59 to 4:01
+        - 4:03 to 4:04
+
+- Summertime Girls
     - http://www.youtube.com/watch?v=8b2SVxOPwww
         - 0:15 to 0:23
         - 1:22 to 1:23
