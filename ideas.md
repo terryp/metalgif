@@ -467,10 +467,23 @@
 
 ## Whitesnake
 
+- Here I Go Again
+    - http://www.youtube.com/watch?v=i3MXiTeH_Pg
+        - :01 to :04
+        - :13 to :14
+        - :27 to :28
+        - :29 to :30
+        - 1:12 to 1:14
+        - 1:54 to 1:55
+        - 2:21 to 2:22
+        - 4:15 to 4:16 
+
  - Still of the Night
     - http://www.youtube.com/watch?v=r0oZejszyH0
         - 1:37 to 1:41
         - 3:43 to 3:47
+
+
 
 ## Winger
 
