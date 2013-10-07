@@ -189,6 +189,17 @@
 ## Kiss
 
 - Lick It Up
+    - http://www.youtube.com/watch?v=Gcj34XixuYg
+        - :41 to :42
+        - :50 to :51
+        - 2:02 to 2:04
+        - 2:14 to 2:16
+        - 2:42 to 2:44
+        - 2:47 to 2:49
+        - 2:49 to 2:50
+        - 3:02 to 3:03
+        - 
+
 
 - Turn on the Night
     - http://www.youtube.com/watch?v=jbDQYdln1UM
