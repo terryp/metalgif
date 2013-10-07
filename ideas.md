@@ -9,7 +9,21 @@
     - Download the mobile version
 - http://imgflip.com/gifgenerator
     - Go nuts
-        
+      
+## Aerosmith
+
+- Angel
+    - http://www.youtube.com/watch?v=CBTOGVb_cQg
+        - :03 to :04
+        - :09 to :11
+        - :15 to :16
+        - :18 to :19
+        - :27 to :28
+        - :51 to :52
+        - 1:33 to 1:34
+        - 3:33 to 3:35
+        - 3:40 to 3:45
+
 ## Aldo Nova
 
 - Fantasy
