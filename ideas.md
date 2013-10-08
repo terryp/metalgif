@@ -359,6 +359,18 @@
         - 2:26 to 2:28
         - 4:10 to 4:12
 
+## Ratt
+
+- Back for More
+    - http://www.youtube.com/watch?v=yLkF3lpDD5M
+        - :49 to :51
+        - 1:02 to 1:03
+        - 1:15 to 1:17
+        - 1:24 to 1:25
+        - 1:30 to 1:31
+        - 2:48 to 2:49
+        - 
+
 ## Saigon Kick
 
 - Love is on the Way
