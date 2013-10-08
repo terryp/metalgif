@@ -113,7 +113,23 @@
         - 1:26 to 1:28
         - 1:40 to 1:44
         - 3:00 to 3:01
-    
+
+- Pour Some Sugar on Me
+    - http://www.youtube.com/watch?v=0UIB9Y4OFPs
+        - :03 to :05
+        - :36 to :37
+        - :38 to :39
+        - 1:09 to 1:10
+        - 1:19 to 1:20
+        - 1:32 to 1:33
+        - 1:34 to 1:35
+        - 1:51 to 1:52
+        - 1:55 to 1:56
+        - 2:27 to 2:28
+        - 2:31 to 2:32
+        - 3:09 to 3:10
+        - 3:50 to 4:00
+
 ## Dangerous Toys
 - Scared
     - http://www.youtube.com/watch?v=jVqeoI4klLE
