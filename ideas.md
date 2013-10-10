@@ -33,12 +33,18 @@
     - http://www.youtube.com/watch?v=GmxK9CS3RV0
         - 2:28 to 2:24
 
+## Danger Danger
+- Naughty Naughty
+    - http://www.youtube.com/watch?v=hetN7a9Maa0
+
 ## Dangerous Toys
 - Scared
     - http://www.youtube.com/watch?v=jVqeoI4klLE
         - 0:21 to 0:22
         - 1:18 to 1:19
         - 2:07 to 2:10
+
+
 
 ## Dio
 - Holy Diver
@@ -56,10 +62,47 @@
     	- 1:56 to 1:59
     	- 2:22 to 2:30
 
+## Extreme
+- More Than Words
+    - http://www.youtube.com/watch?v=UrIiLvg58SY
+        - 0:52 to 0:55
+        - 2:12 to 2:24 (slow dolly shot)
+        - 3:36 to 3:48 (spinning!)
+
+- Hole Hearted
+    - http://www.youtube.com/watch?v=I-h4A7bF8wQ
+        - 0:26 to 0:28
+        - 0:30 to 0:38 (more spinning!)
+        - 2:43 to 2:46 
+
+- Get the Funk Out (I feel bad for whoever had to edit this)
+    - http://www.youtube.com/watch?v=IqP76XWHQI0
+        - 0:52 to 0:53
+        - 1:25 to 1:26
+        - 1:32 to 1:34
+        - 4:20 to 4:22
+
+- Decadance Dance
+    - http://www.youtube.com/watch?v=OoKJpcROgJk
+        - 0:36 to 0:38
+        - 0:54 to 0:56
+        - 2:28 to 2:29
+        - 2:58 to 3:02
+
+
 ## Fastway
 - http://www.youtube.com/watch?v=taV_qfVYnrg
 
 ## Helloween
+
+## Hurricane
+- I'm On to You
+    - http://www.youtube.com/watch?v=IRYqeOtYi08
+        - :10 to :12 (double bass!)
+        - :37 to :39
+        - :58 to 1:00
+        - 1:13 to 1:!5
+        - 2:20 to 2:22
 
 ## Kiss
 - Lick It Up
@@ -124,6 +167,14 @@
         - 2:06 to 2:09
         - 2:26 to 2:28
         - 4:10 to 4:12
+
+## RATT
+- Way Cool Jr
+    - http://www.youtube.com/watch?v=0VUP4thpr3c
+        - :14 to :17
+        - :20 to :22
+        - :31 to :33
+
 
 ## Saigon Kick
 
