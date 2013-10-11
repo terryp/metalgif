@@ -12,7 +12,7 @@
       
 ## Aerosmith
 
-- Angel
+- Angel / COMPLETE
     - http://www.youtube.com/watch?v=CBTOGVb_cQg
         - :03 to :04
         - :09 to :11
@@ -26,14 +26,14 @@
 
 ## Aldo Nova
 
-- Fantasy
+- Fantasy / COMPETE
     - http://www.youtube.com/watch?v=vPQgfaB3S1c
         - 1:18 to 1:22
         - 2:08 to 2:10
 
 ## Bang Tango
 
-- Someone Like You
+- Someone Like You / COMPLETE
     - http://www.youtube.com/watch?v=5u0yiplamdw
         - 0:11 to 0:12
         - 0:24 to 0:26
@@ -44,7 +44,7 @@
 
 ## Billy Squier 
 
-- Rock Me Tonight
+- Rock Me Tonight / COMPLETE
     - http://www.youtube.com/watch?v=fR0j7sModCI
         - 0:28 to 0:38
         - 0:48 to 0:49
@@ -68,11 +68,11 @@
 
 ## Blue Oyster Cult
 
-- Don't Fear the Reaper
+- Don't Fear the Reaper / COMPLETE
     - http://www.youtube.com/watch?v=ZdXfkkyI1nQ
         - :37 to :39
 
-- Dancin in the Ruins
+- Dancin in the Ruins / COMPLETE
     - http://www.youtube.com/watch?v=wlVWprYozR8
         - 1:10 to 1:11
         - 2:11 to 2:13
@@ -99,7 +99,7 @@
 
 ## David Lee Roth
 
-- Just Like Paradise
+- Just Like Paradise / COMPLETE
     - http://www.youtube.com/watch?v=I4qh_9vH1Ww
         - 1:39 to 1:41
         - 3:12 to 3:13
@@ -107,13 +107,13 @@
 
 ## Def Leppard
 
-- Photograph
+- Photograph / COMPLETE
     - http://www.youtube.com/watch?v=VZ5bS3_BCDs
         - 1:26 to 1:28
         - 1:40 to 1:44
         - 3:00 to 3:01
 
-- Pour Some Sugar on Me
+- Pour Some Sugar on Me / COMPLETE
     - http://www.youtube.com/watch?v=0UIB9Y4OFPs
         - :03 to :05
         - :36 to :37
@@ -157,7 +157,7 @@
 - Breaking the Chains
     - http://www.youtube.com/watch?v=DETUV4tCHMc
 
-- Dream Warriors
+- Dream Warriors / COMPLETE
   	- http://www.youtube.com/watch?v=BtR6IrvxeFs
     	- :52 to :56
     	- 1:34 to 1:36
@@ -165,7 +165,7 @@
     	- 1:56 to 1:59
     	- 2:22 to 2:30
 
-- Heaven Sent
+- Heaven Sent / COMPLETE
     - http://www.youtube.com/watch?v=G2lTPuvB-Sc
         - :05 to :07
         - :41 to :43
@@ -211,7 +211,7 @@
 
 ## The Firm
 
-- Radioactive
+- Radioactive / COMPLETE
     - http://www.youtube.com/watch?v=3973tfsllqw
         - :01 to :02
         - :05 to :06
@@ -224,7 +224,7 @@
 
 ## Guns N Roses 
 
-- Welcome to the Jungle
+- Welcome to the Jungle / COMPLETE
     - http://www.youtube.com/watch?v=o1tj2zJ2Wvg
         - :15 to :16
         - :34 to :36
@@ -259,7 +259,7 @@
 
 ## Kiss
 
-- Lick It Up
+- Lick It Up / COMPLETE
     - http://www.youtube.com/watch?v=Gcj34XixuYg
         - :41 to :42
         - :50 to :51
@@ -270,7 +270,7 @@
         - 2:49 to 2:50
         - 3:02 to 3:03
 
-- Turn on the Night
+- Turn on the Night / COMPLETE
     - http://www.youtube.com/watch?v=jbDQYdln1UM
         - :26 to :28
         - :44 to :48
@@ -298,7 +298,7 @@
 
 ## Love/Hate
 
-- Why do you think they call it dope
+- Why do you think they call it dope / COMPLETE
     - http://www.youtube.com/watch?v=HtAxLs7nmiU
         - 0:29 to 0:30
         - 1:01 to 1:03
@@ -307,14 +307,14 @@
 
 ## Motley Crue
 
-- Girls, Girls, Girls
+- Girls, Girls, Girls / COMPLETE
     - http://www.youtube.com/watch?v=d2XdmyBtCRQ
         - 2:52 to 2:54
         - 3:15 to 3:16
         - 3:24 to 3:25
         - 3:54 to 3:56
 
-- Looks That Kill
+- Looks That Kill / COMPLETE
     - http://www.youtube.com/watch?v=tXRC5UPWDk4
         - :10 to :12
         - :46 to :49
@@ -322,7 +322,7 @@
         - 2:01 to 2:02
         - 2:32 to 2:34
 
-- Too Young to Fall in Love
+- Too Young to Fall in Love / COMPLETE
     - http://www.youtube.com/watch?v=4WU6DpFFWTM
         - :31 to :34
         - 1:01 to 1:07
@@ -334,7 +334,7 @@
 
 ## Mr Big
 
-- Addicted to that Rush
+- Addicted to that Rush / COMPLETE
     - http://www.youtube.com/watch?v=Ck3MuHqYRLM
         - 1:24 to 1:26
         - 2:20 to 2:26
@@ -343,13 +343,12 @@
 
 ## Nelson
 
-- Love and Affection
+- Love and Affection / COMPLETE
     - http://www.youtube.com/watch?v=x1W6-ErrHls
         - :27 to :29
         - 2:08 to 2:12
         - 2:12 to 2:13
         - 3:00 to 3:03
-        - 
 
 ## Nitro
 
@@ -362,7 +361,7 @@
 
 ## Ozzy Osbourne
 
-- Shot in the Dark
+- Shot in the Dark / COMPLETE
     - http://www.youtube.com/watch?v=XjYJIDyFofk
         - :47 to :50
         - :54 to 1:00
@@ -372,7 +371,7 @@
         - 2:01 to 2:02
         - 2:32 to 2:33
 
-- Crazy Train
+- Crazy Train / COMPLETE
     - http://www.youtube.com/watch?v=ZcoweoZ6jpM
         - :11 to :12
         - 1:47 to 1:48
@@ -396,7 +395,7 @@
 
 ## Quiet Riot
 
-- Come on Feel the Noise
+- Come on Feel the Noise / COMPLETE
     - http://www.youtube.com/watch?v=AQoAi4QcW0c
         - :29 to :30
         - 1:59 to 2:01
@@ -406,7 +405,7 @@
 
 ## Ratt
 
-- Back for More
+- Back for More / COMPLETE
     - http://www.youtube.com/watch?v=yLkF3lpDD5M
         - :49 to :51
         - 1:02 to 1:03
@@ -433,12 +432,12 @@
 
 ## Scorpions 
 
-- No One Like You
+- No One Like You / COMPLETE
     - http://www.youtube.com/watch?v=yaKkFz7G6rk
         - 2:21 to 2:22
         - 3:22 to 3:24
 
-- Rock You Like a Hurricane
+- Rock You Like a Hurricane / COMPLETE
     - http://www.youtube.com/watch?v=sxdmw4tJJ1Y
         - :04 to :05
         - :31 to :32
@@ -450,14 +449,14 @@
 
 ## Steve Stevns
 
-- Atomic Playboys
+- Atomic Playboys / COMPLETE
 	- http://www.youtube.com/watch?v=2XYAwpVtYrE
 		- :46 to :49
 		- 1:03 to 1:06
 
 ## Suicidal Tendencies
 
-- Trip At The Brain
+- Trip At The Brain / COMPLETE
     - http://www.youtube.com/watch?v=XDheLViZbrk
         - :20 to :22
         - 2:24 to 2:27
@@ -466,7 +465,7 @@
 
 ## Survivor
 
-- Burning Heart
+- Burning Heart / COMPLETE
     - http://www.youtube.com/watch?v=Kc71KZG87X4
         - :12 to :15
         - :44 to :45
@@ -475,9 +474,8 @@
         - 1:25 to 1:27
         - 1:28 to 1:30
         - 2:17 to 2:19
-        - 
 
-- I Can't Hold Back
+- I Can't Hold Back / COMPLETE
     - http://www.youtube.com/watch?v=GaMcsKtBDwE
         - :10 to :12
         - :32 to :33
@@ -490,7 +488,7 @@
 
 ## Tesla
 
-- Love Song
+- Love Song / COMPLETE
     - http://www.youtube.com/watch?v=l2q_-xN2N54
         - :13 to :14
         - :29 to :30
@@ -505,7 +503,7 @@
 
 ## Warrant
 
-- Down Boys
+- Down Boys / COMPLETE
     - http://www.youtube.com/watch?v=0RHENr6Xe70
         - :24 to :27
         - 1:41 to 1:44
@@ -515,7 +513,7 @@
 
 ## Van Halen
 
-- Jump
+- Jump / COMPLETE
     - http://www.youtube.com/watch?v=wlq0lYB3iSM
         - :14 to :17
         - :17 to :18
@@ -529,7 +527,7 @@
 
 ## Vinnie Vincent Invasion
 
-- Boys are Gonna Rock 
+- Boys are Gonna Rock  / COMPLETE
     - http://www.youtube.com/watch?v=qS8PMYy1CLM
         - 0:11 to 0:14
         - 0:43 t0 :44
@@ -541,7 +539,7 @@
 
 ## Vixen
 
-- Edge of a Broken Heart
+- Edge of a Broken Heart / COMPLETE
     - http://www.youtube.com/watch?v=mQOmDUnt8Hs
         - :03 - :04
         - :47 to :49
@@ -549,7 +547,6 @@
         - 1:06 to 1:08
         - 1:27 to 1:28
         - 2:22 to 2:23
-        - 
 
 ## WASP 
 
@@ -557,7 +554,7 @@
 
 ## White Lion
 
-- Little Fighter
+- Little Fighter / COMPLETE
     - http://www.youtube.com/watch?v=DaT8is6b3QA
         - :04 to :06
         - :37 to :39
@@ -566,11 +563,10 @@
         - 1:32 to 1:34
         - 2:04 to 2:07
         - 3:29 to 3:32
-        - 
 
 ## Whitesnake
 
-- Here I Go Again
+- Here I Go Again / COMPLETE
     - http://www.youtube.com/watch?v=i3MXiTeH_Pg
         - :01 to :04
         - :13 to :14
@@ -581,20 +577,20 @@
         - 2:21 to 2:22
         - 4:15 to 4:16 
 
- - Still of the Night
+ - Still of the Night / COMPLETE
     - http://www.youtube.com/watch?v=r0oZejszyH0
         - 1:37 to 1:41
         - 3:43 to 3:47
 
 ## Winger
 
-  - Seventeen
+  - Seventeen / COMPLETE
     - http://www.youtube.com/watch?v=GlN3oEjMpUQ
         - 3:48 to 3:50
 
 ## Y & T
 
-- Don't Stop Running
+- Don't Stop Running / COMPLETE
     - http://www.youtube.com/watch?v=uzTElElg9Vk
         - 1:01 to 1:02
         - 1:18 to 1:20
@@ -605,7 +601,7 @@
         - 3:59 to 4:01
         - 4:03 to 4:04
 
-- Summertime Girls
+- Summertime Girls / COMPLETE
     - http://www.youtube.com/watch?v=8b2SVxOPwww
         - 0:15 to 0:23
         - 1:22 to 1:23
