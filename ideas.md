@@ -128,9 +128,15 @@
         - 2:27 to 2:28
         - 2:31 to 2:32
         - 3:09 to 3:10
-        - 3:50 to 4:00
+        - 3:50 to 4:00    
+
+## Danger Danger
+
+- Naughty Naughty
+    - http://www.youtube.com/watch?v=hetN7a9Maa0
 
 ## Dangerous Toys
+
 - Scared
     - http://www.youtube.com/watch?v=jVqeoI4klLE
         - 0:16 to 0:17
@@ -170,7 +176,34 @@
         - 3:30 to 3:32
         - 4:11 to 4:12
         - 4:36 to 4:38
-        - 
+
+## Extreme
+
+- More Than Words
+    - http://www.youtube.com/watch?v=UrIiLvg58SY
+        - 0:52 to 0:55
+        - 2:12 to 2:24 (slow dolly shot)
+        - 3:36 to 3:48 (spinning!)
+
+- Hole Hearted
+    - http://www.youtube.com/watch?v=I-h4A7bF8wQ
+        - 0:26 to 0:28
+        - 0:30 to 0:38 (more spinning!)
+        - 2:43 to 2:46 
+
+- Get the Funk Out (I feel bad for whoever had to edit this)
+    - http://www.youtube.com/watch?v=IqP76XWHQI0
+        - 0:52 to 0:53
+        - 1:25 to 1:26
+        - 1:32 to 1:34
+        - 4:20 to 4:22
+
+- Decadance Dance
+    - http://www.youtube.com/watch?v=OoKJpcROgJk
+        - 0:36 to 0:38
+        - 0:54 to 0:56
+        - 2:28 to 2:29
+        - 2:58 to 3:02
 
 ## Fastway
 
@@ -215,6 +248,15 @@
 - Run to the Hills
     - http://www.youtube.com/watch?v=geHLdg_VNww
 
+## Hurricane
+
+- I'm On to You
+    - http://www.youtube.com/watch?v=IRYqeOtYi08
+        - :10 to :12 (double bass!)
+        - :37 to :39
+        - :58 to 1:00
+        - 1:13 to 1:!5
+        - 2:20 to 2:22
 
 ## Kiss
 
@@ -228,8 +270,6 @@
         - 2:47 to 2:49
         - 2:49 to 2:50
         - 3:02 to 3:03
-        - 
-
 
 - Turn on the Night
     - http://www.youtube.com/watch?v=jbDQYdln1UM
@@ -243,6 +283,13 @@
         - 2:23 to 2:24
         - 2:55 to 2:57
         - 3:05 to 3:06
+
+- Heaven's on Fire
+    - https://www.youtube.com/watch?v=EZjevnnkA20
+       - 0:00 to 0:03
+       - 0:46 to 0:48
+       - 1:23 to 1:25
+       - 3:08 to 3:10
 
 ## Kix
 
@@ -308,7 +355,6 @@
 ## Nitro
 
 - Freight Train
-    - I'll top that Vai three neck w/ a Michael Biatoi (Chicago's own) four neck
     - http://www.youtube.com/watch?v=cDcBKVKQizg 
         - 0:11 to 0:14
         - 2:28 to 2:30
@@ -369,7 +415,12 @@
         - 1:24 to 1:25
         - 1:30 to 1:31
         - 2:48 to 2:49
-        - 
+
+- Way Cool Jr
+    - http://www.youtube.com/watch?v=0VUP4thpr3c
+        - :14 to :17
+        - :20 to :22
+        - :31 to :33
 
 ## Saigon Kick
 
@@ -397,7 +448,6 @@
         - 1:43 to 1:46
         - 2:31 to 2:32
         - 3:37 to 3:39
-        
 
 ## Steve Stevns
 
@@ -465,6 +515,7 @@
 
 
 ## Van Halen
+
 - Jump
     - http://www.youtube.com/watch?v=wlq0lYB3iSM
         - :14 to :17
@@ -479,7 +530,7 @@
 
 ## Vinnie Vincent Invasion
 
-- Boys are Gonna Rock (the real guitar solo, although it sounds like a 'shred' video)
+- Boys are Gonna Rock 
     - http://www.youtube.com/watch?v=qS8PMYy1CLM
         - 0:11 to 0:14
         - 0:43 t0 :44
