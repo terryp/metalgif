@@ -58,7 +58,7 @@
 
 ## Blue Murder
 
-- Valley of the Kinds
+- Valley of the Kings
     - http://www.youtube.com/watch?v=hfsZ4EzSn80
         - 5:14 to 5:16
 
@@ -158,12 +158,12 @@
     - http://www.youtube.com/watch?v=DETUV4tCHMc
 
 - Dream Warriors / COMPLETE
-  	- http://www.youtube.com/watch?v=BtR6IrvxeFs
-    	- :52 to :56
-    	- 1:34 to 1:36
-    	- 1:42 to 1:46
-    	- 1:56 to 1:59
-    	- 2:22 to 2:30
+    - http://www.youtube.com/watch?v=BtR6IrvxeFs
+        - :52 to :56
+        - 1:34 to 1:36
+        - 1:42 to 1:46
+        - 1:56 to 1:59
+        - 2:22 to 2:30
 
 - Heaven Sent / COMPLETE
     - http://www.youtube.com/watch?v=G2lTPuvB-Sc
@@ -450,9 +450,9 @@
 ## Steve Stevns
 
 - Atomic Playboys / COMPLETE
-	- http://www.youtube.com/watch?v=2XYAwpVtYrE
-		- :46 to :49
-		- 1:03 to 1:06
+    - http://www.youtube.com/watch?v=2XYAwpVtYrE
+        - :46 to :49
+        - 1:03 to 1:06
 
 ## Suicidal Tendencies
 
