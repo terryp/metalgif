@@ -58,7 +58,7 @@
 
 ## Blue Murder
 
-- Valley of the Kings
+- Valley of the Kinds
     - http://www.youtube.com/watch?v=hfsZ4EzSn80
         - 5:14 to 5:16
 
@@ -72,7 +72,7 @@
     - http://www.youtube.com/watch?v=ZdXfkkyI1nQ
         - :37 to :39
 
-- Dancin in the Ruins / COMPLETE
+- Dancin' in the Ruins / COMPLETE
     - http://www.youtube.com/watch?v=wlVWprYozR8
         - 1:10 to 1:11
         - 2:11 to 2:13
