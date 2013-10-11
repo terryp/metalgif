@@ -58,8 +58,15 @@
 
 ## Blue Murder
 
-- Valley of the Kings
+- Valley of the Kings / COMPLETE
     - http://www.youtube.com/watch?v=hfsZ4EzSn80
+        - :11 to :14
+        - :27 to :28
+        - :56 to :58
+        - 1:31 to 1:32
+        - 2:23 tto 2:25
+        - 2:45 to 2:47
+        - 3:51 to 3:52
         - 5:14 to 5:16
 
 - Jelly Roll
