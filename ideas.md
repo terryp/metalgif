@@ -211,6 +211,10 @@
 	- http://www.youtube.com/watch?v=2XYAwpVtYrE
 		- :46 to :49
 		- 1:03 to 1:06
+
+## Rainbow
+- Since You've Been Gone (darn catchy tune)
+     - http://www.youtube.com/watch?v=xfWPqRtozh0
 		
 ## TNT
 - 10,000 Lovers in One
