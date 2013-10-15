@@ -105,8 +105,12 @@
         - :10 to :12 (double bass!)
         - :37 to :39
         - :58 to 1:00
-        - 1:13 to 1:!5
+        - 1:13 to 1:15
         - 2:20 to 2:22
+
+## Keel
+- The Right to Rock
+    - http://www.youtube.com/watch?v=HphiFz5t6JU
 
 ## Kiss
 - Lick It Up
@@ -121,6 +125,11 @@
 - Don't Close Your Eyes
     - http://www.youtube.com/watch?v=wcEu47mR43U
         - 3:52 to 3:56
+
+## Lynch Mob
+- Wicked Sensation
+    - http://www.youtube.com/watch?v=Iuzw9erGJfQ
+
 
 ## Love/Hate
 - Why do you think they call it dope
@@ -202,6 +211,14 @@
 	- http://www.youtube.com/watch?v=2XYAwpVtYrE
 		- :46 to :49
 		- 1:03 to 1:06
+		
+## TNT
+- 10,000 Lovers in One
+    - http://www.youtube.com/watch?v=v2Trhpltp0Y
+		
+## Trixter
+- Give it to Me Good
+    - http://www.youtube.com/watch?v=r2uNl0648zQ
 
 ## Vinnie Vincent Invasion
 - Boys are Gonna Rock (the real guitar solo, although it sounds like a 'shred' video)
@@ -224,6 +241,12 @@
     - http://www.youtube.com/watch?v=r0oZejszyH0
         - 1:37 to 1:41
         - 3:43 to 3:47
+
+ - Fool for Your Loving (featuring Steve Vai)
+    - http://www.youtube.com/watch?v=GV3mhuF6W3w
+    
+ - Now You're Gone
+    - http://www.youtube.com/watch?v=QvejJIuoETg
 
 ## Winger
 
