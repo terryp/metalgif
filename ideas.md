@@ -5,6 +5,13 @@
 - Balls to the Walls
    - http://www.youtube.com/watch?v=B_3TlrZLpQ0
    	- really the entire video
+  
+## Alcatrazz
+- Island in the Sun
+     - http://www.youtube.com/watch?v=7mafd2QXBh8
+
+- God Blessed Video
+     - http://www.youtube.com/watch?v=N19Pu1KM3b4
 
 ## Aldo Nova
 - Fantasy
