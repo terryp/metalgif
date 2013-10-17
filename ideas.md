@@ -19,6 +19,10 @@
         - 1:18 to 1:22
         - 2:08 to 2:10
 
+## Autograph
+- Turn Up the Radio
+     - http://www.youtube.com/watch?v=Uv8wYWK-HW4
+
 ## Bang Tango
 - Someone Like You
     - http://www.youtube.com/watch?v=5u0yiplamdw
@@ -77,6 +81,12 @@
     	- 1:42 to 1:46
     	- 1:56 to 1:59
     	- 2:22 to 2:30
+
+- Alone Again
+     - http://www.youtube.com/watch?v=1YAjQYJ7PVs
+
+- Into the Fire (helicopters, speedboats, barbed wire, human sacrifice, explosions, oh my)
+      - http://www.youtube.com/watch?v=kyePfnR3DmA
 
 ## Extreme
 - More Than Words
@@ -196,6 +206,10 @@
         - 1:47 to 1:48
         - 3:47 to 3:48
 
+- Ultimate Sin
+     - http://www.youtube.com/watch?v=yPIi2TVOcRg
+     
+
 ## Queensryche
 
 - Queen of the Reich
@@ -204,6 +218,8 @@
 - Gonna Get Close to You
     - http://www.youtube.com/watch?v=0ZhJ_ZR2PK8&list=UUHUJK0yOxOhi9La1E9HniMA
         - 1:50 to 1:52
+- Eyes of a Stranger
+     - http://www.youtube.com/watch?v=A4duZjxusGM
 
 ## Quiet Riot
 
@@ -221,6 +237,9 @@
         - :14 to :17
         - :20 to :22
         - :31 to :33
+
+- Back for More
+    - http://www.youtube.com/watch?v=yLkF3lpDD5M
 
 ## Saga
 - On the Loose
@@ -243,6 +262,11 @@
 ## Rainbow
 - Since You've Been Gone (darn catchy tune)
      - http://www.youtube.com/watch?v=xfWPqRtozh0
+
+
+## Steelheart
+- I'll Never Let You Go (I feel bad about this one)
+     - http://www.youtube.com/watch?v=F-nyeiKk35M
 		
 ## TNT
 - 10,000 Lovers in One
