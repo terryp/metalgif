@@ -19,7 +19,18 @@
 
 - Balls to the Walls
    - http://www.youtube.com/watch?v=B_3TlrZLpQ0
-   	- really the entire video
+        - :09 to :11 / the sync
+        - :17 to :18 / the sync, the headbang
+        - :27 to :28 / the sync, the headbang
+        - :30 to :31 / the sync
+        - :32 to :33 / the beat, the headbang
+        - :42 to :43 / the sync
+        - :53 to :54 / the sync
+        - 2:05 to 2:06 / the fist
+        - 2:07 to 2:09 / the headbang
+        - 3:17 to 3:18 / the fist
+        - 3:42 to 3:43 / the point
+        - 
   
 ## Alcatrazz
 
