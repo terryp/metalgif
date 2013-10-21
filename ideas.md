@@ -23,6 +23,20 @@
         - 1:33 to 1:34
         - 3:33 to 3:35
         - 3:40 to 3:45
+        
+## Accept
+
+- Balls to the Walls
+   - http://www.youtube.com/watch?v=B_3TlrZLpQ0
+   	- really the entire video
+  
+## Alcatrazz
+
+- Island in the Sun
+     - http://www.youtube.com/watch?v=7mafd2QXBh8
+
+- God Blessed Video
+     - http://www.youtube.com/watch?v=N19Pu1KM3b4
 
 ## Aldo Nova
 
@@ -30,6 +44,11 @@
     - http://www.youtube.com/watch?v=vPQgfaB3S1c
         - 1:18 to 1:22
         - 2:08 to 2:10
+
+## Autograph
+
+- Turn Up the Radio
+     - http://www.youtube.com/watch?v=Uv8wYWK-HW4
 
 ## Bang Tango
 
@@ -85,6 +104,11 @@
         - 2:11 to 2:13
         - 2:13 to 2:14
         - 2:34 to 2:36
+
+## Bonham
+
+- Wait for You
+    - http://www.youtube.com/watch?v=mciP59WSnNw
 
 ## Bulletboys
 
@@ -183,6 +207,12 @@
         - 4:11 to 4:12
         - 4:36 to 4:38
 
+- Alone Again
+     - http://www.youtube.com/watch?v=1YAjQYJ7PVs
+
+- Into the Fire (helicopters, speedboats, barbed wire, human sacrifice, explosions, oh my)
+      - http://www.youtube.com/watch?v=kyePfnR3DmA
+
 ## Extreme
 
 - More Than Words
@@ -261,8 +291,30 @@
         - :10 to :12 (double bass!)
         - :37 to :39
         - :58 to 1:00
-        - 1:13 to 1:!5
+        - 1:13 to 1:15
         - 2:20 to 2:22
+
+## Great White
+
+- Lady Red Light
+     - http://www.youtube.com/watch?v=PkI66wY2I0o
+
+- Once Bitten Twice Shy 
+     - http://www.youtube.com/watch?v=Bz61YQWZuYU
+
+- Save Your Love
+     - http://www.youtube.com/watch?v=eG4V61siA2c
+
+
+## Keel
+
+- The Right to Rock
+    - http://www.youtube.com/watch?v=HphiFz5t6JU
+
+## Kingdom Come
+
+- Get it On (awful editing)
+     - http://www.youtube.com/watch?v=nq1tpCkAecI
 
 ## Kiss
 
@@ -302,6 +354,11 @@
 - Don't Close Your Eyes
     - http://www.youtube.com/watch?v=wcEu47mR43U
         - 3:52 to 3:56
+
+## Lynch Mob
+- Wicked Sensation
+    - http://www.youtube.com/watch?v=Iuzw9erGJfQ
+
 
 ## Love/Hate
 
@@ -391,6 +448,9 @@
 - Secret Loser
     - http://www.youtube.com/watch?v=EMYjK7kjziY
 
+- Ultimate Sin
+     - http://www.youtube.com/watch?v=yPIi2TVOcRg=
+
 ## Queensryche
 
 - Queen of the Reich
@@ -399,6 +459,8 @@
 - Gonna Get Close to You
     - http://www.youtube.com/watch?v=0ZhJ_ZR2PK8&list=UUHUJK0yOxOhi9La1E9HniMA
         - 1:50 to 1:52
+- Eyes of a Stranger
+     - http://www.youtube.com/watch?v=A4duZjxusGM
 
 ## Quiet Riot
 
@@ -426,6 +488,14 @@
         - :14 to :17
         - :20 to :22
         - :31 to :33
+
+- Back for More
+    - http://www.youtube.com/watch?v=yLkF3lpDD5M
+
+## Saga
+
+- On the Loose
+  - http://www.youtube.com/watch?v=xQLWMvJ3sp4
 
 ## Saigon Kick
 
@@ -532,6 +602,27 @@
         - 3:38 to 3:40
         
 
+## Rainbow
+
+- Since You've Been Gone (darn catchy tune)
+     - http://www.youtube.com/watch?v=xfWPqRtozh0
+
+
+## Steelheart
+
+- I'll Never Let You Go (I feel bad about this one)
+     - http://www.youtube.com/watch?v=F-nyeiKk35M
+		
+## TNT
+
+- 10,000 Lovers in One
+    - http://www.youtube.com/watch?v=v2Trhpltp0Y
+		
+## Trixter
+
+- Give it to Me Good
+    - http://www.youtube.com/watch?v=r2uNl0648zQ
+
 ## Vinnie Vincent Invasion
 
 - Boys are Gonna Rock  / COMPLETE
@@ -588,6 +679,12 @@
     - http://www.youtube.com/watch?v=r0oZejszyH0
         - 1:37 to 1:41
         - 3:43 to 3:47
+
+ - Fool for Your Loving (featuring Steve Vai)
+    - http://www.youtube.com/watch?v=GV3mhuF6W3w
+    
+ - Now You're Gone
+    - http://www.youtube.com/watch?v=QvejJIuoETg
 
 ## Winger
 
