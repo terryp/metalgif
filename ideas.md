@@ -86,16 +86,8 @@
 
 ## Cinderella
 
-- Shake Me
+- Shake Me / COMPLETE
     - http://www.youtube.com/watch?v=ptPekKOigkQ
-        - :19 to :21 / the plot
-        - :42 to :43 / the windmill
-        - :47 to :48 / the spin
-        - 1:05 to 1:07 / the fan
-        - 1:42 to 1:43 / the twirl
-        - 1:48 to 1:49 / the kick, the kick
-        - 3:02 to 3:03 / the guitar spin
-        - 3:52 to 3:53 / the keyboard player, the sell
 
 ## David Lee Roth
 
