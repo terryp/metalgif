@@ -301,7 +301,7 @@
     - http://www.youtube.com/watch?v=TqYEQVqcKCg
         - 2:56 to 3:00
 
-- Secret Loser
+- Secret Loser / COMPLETE
     - http://www.youtube.com/watch?v=EMYjK7kjziY
 
 - Ultimate Sin
