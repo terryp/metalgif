@@ -13,6 +13,11 @@
     - http://gifbrewery.com/ 
         - A worthy $5 commitment to making Metal Gifs!
 
+- Tumblr Restrictions and Consistency
+    - Set width to 300 px
+    - Make sure images are < 1.1 MB
+        - Restricting time, colors and frames are good strategies!
+
 ## Aerosmith
 
 - Angel / COMPLETE
@@ -393,9 +398,8 @@
 
 ## Rainbow
 
-- Since You've Been Gone (darn catchy tune)
+- Since You've Been Gone / COMPLETE
      - http://www.youtube.com/watch?v=xfWPqRtozh0
-
 
 ## Steelheart
 
