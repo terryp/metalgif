@@ -114,17 +114,8 @@
 
 ## Dangerous Toys
 
-- Scared
+- Scared / COMPLETE
     - http://www.youtube.com/watch?v=jVqeoI4klLE
-        - 0:16 to 0:17
-        - 0:21 to 0:22
-        - 1:11 to 1:13
-        - 1:18 to 1:19
-        - 1:53 to 1:58
-        - 2:07 to 2:10
-        - 2:26 to 2:28
-        - 3:09 to 3:11
-
 
 ## Dio
 
@@ -151,6 +142,7 @@
 
 - More Than Words
     - http://www.youtube.com/watch?v=UrIiLvg58SY
+        - :03 to :06 / the plot
         - 0:52 to 0:55
         - 2:12 to 2:24 (slow dolly shot)
         - 3:36 to 3:48 (spinning!)
@@ -307,6 +299,11 @@
 - Ultimate Sin
      - http://www.youtube.com/watch?v=yPIi2TVOcRg=
 
+## Poison
+
+- I Won't Forget You / COMPLETE
+    - http://www.youtube.com/watch?v=BJJ_HJ-9JNM
+
 ## Queensryche
 
 - Queen of the Reich
@@ -400,6 +397,12 @@
 
 - Since You've Been Gone / COMPLETE
      - http://www.youtube.com/watch?v=xfWPqRtozh0
+
+## Suicidal Tendencies
+
+- How Will I Laugh Tomorrow
+    - http://www.youtube.com/watch?v=MngX53etUvc
+        - 
 
 ## Steelheart
 
