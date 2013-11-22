@@ -1,4 +1,3 @@
-
 ## Macro Reference
 - http://www.digitaldreamdoor.com/pages/best_metal-hair-art.html
 - http://dj-funktual.hubpages.com/hub/The-100-Greatest-Hair-Metal-Songs
@@ -357,6 +356,9 @@
 
 - Rock You Like a Hurricane / COMPLETE
     - http://www.youtube.com/watch?v=sxdmw4tJJ1Y
+
+- Winds of Change
+    - https://www.youtube.com/watch?v=n4RjJKxsamQ&feature=player_embedded
 
 ## Steve Stevns
 
