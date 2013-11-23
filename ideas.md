@@ -72,6 +72,11 @@
 - Dancin' in the Ruins / COMPLETE
     - http://www.youtube.com/watch?v=wlVWprYozR8
 
+## Bon Jovi
+
+- You Give Love a Bad Name / COMPLETE
+    - http://www.youtube.com/watch?v=KrZHPOeOxQQ
+
 ## Bonham
 
 - Wait for You
@@ -143,7 +148,9 @@
     - http://www.youtube.com/watch?v=UrIiLvg58SY
         - :03 to :06 / the plot
         - 0:52 to 0:55
-        - 2:12 to 2:24 (slow dolly shot)
+        - 1:01 to 1:04 / the chorus
+        - 1:21 to 1:22 / the hair
+        - 2:11 to 2:18 / the lighter, the plot
         - 3:36 to 3:48 (spinning!)
 
 - Hole Hearted
@@ -359,6 +366,14 @@
 
 - Winds of Change
     - https://www.youtube.com/watch?v=n4RjJKxsamQ&feature=player_embedded
+
+## Slade 
+
+- Run Runaway
+    - http://www.youtube.com/watch?v=ikMiQZF-mAY
+        - 1:01 to 1:04 / 
+        - 1:15 to 1:18 / the twirl
+        - 1:24 to 1:26 / the goose neck
 
 ## Steve Stevns
 
