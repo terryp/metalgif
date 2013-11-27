@@ -84,14 +84,8 @@
 
 ## Bulletboys
 
-- For the Love of Money
+- For the Love of Money / COMPLETE
     - http://www.youtube.com/watch?v=GqxaCG9PBOs
-        - :48 to :50
-        - :56 to :57
-        - 1:19 to 1:20
-        - 1:50 to 1:51
-        - 2:07 to 2:08
-        - 2:54 to 2:55
 
 ## Cinderella
 
@@ -123,7 +117,8 @@
 
 ## Dio
 
-- Holy Diver
+- Holy Diver / COMPLETE
+    - https://www.youtube.com/watch?v=bkysjcs5vFU
 
 ## Dokken
 
@@ -144,14 +139,8 @@
 
 ## Extreme
 
-- More Than Words
+- More Than Words / COMPLETE
     - http://www.youtube.com/watch?v=UrIiLvg58SY
-        - :03 to :06 / the plot
-        - 0:52 to 0:55
-        - 1:01 to 1:04 / the chorus
-        - 1:21 to 1:22 / the hair
-        - 2:11 to 2:18 / the lighter, the plot
-        - 3:36 to 3:48 (spinning!)
 
 - Hole Hearted
     - http://www.youtube.com/watch?v=I-h4A7bF8wQ
