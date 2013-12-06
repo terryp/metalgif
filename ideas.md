@@ -405,18 +405,8 @@
 
 ## Slade
 
-- Run, Runaway
+- Run, Runaway / COMPLETE
     - http://www.youtube.com/watch?v=ikMiQZF-mAY
-        - :20 to :21 / weird
-        - :28 to :29 / the twirl
-        - :39 to :40 / the point
-        - :47 to :49 / the point
-        - :49 to :51 / the point
-        - 1:19 to 1:21 / the sell
-        - 1:25 to 1:27 / the sell
-        - 2:18 to 2:20 / the sell
-        - 2:30 to 2:30 / the fist, the salute
-        - 3:20 to 3:22 / the sync
         
 
 ## Suicidal Tendencies
@@ -438,6 +428,13 @@
 
 - Give it to Me Good
     - http://www.youtube.com/watch?v=r2uNl0648zQ
+
+## Van Halen
+- Panama / COMPLETE
+
+- Jump / COMPLETE
+
+- Why Can't This Be Love (Live Without a Net) / COMPLETE
 
 ## Vinnie Vincent Invasion
 
