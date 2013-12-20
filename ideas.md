@@ -29,8 +29,7 @@
   
 ## Alcatrazz
 
-- Island in the Sun
-     - http://www.youtube.com/watch?v=7mafd2QXBh8
+- Island in the Sun / COMPLETE
 
 - God Blessed Video
      - http://www.youtube.com/watch?v=N19Pu1KM3b4
@@ -92,6 +91,11 @@
 - Shake Me / COMPLETE
     - http://www.youtube.com/watch?v=ptPekKOigkQ
 
+## Clerks (FILM)
+
+- Bezeker
+    - https://www.youtube.com/watch?v=7gFoHkkCaRE
+
 ## David Lee Roth
 
 - Just Like Paradise / COMPLETE
@@ -107,7 +111,7 @@
 
 ## Danger Danger
 
-- Naughty Naughty
+- Naughty Naughty / COMPLETE
     - http://www.youtube.com/watch?v=hetN7a9Maa0
 
 ## Dangerous Toys
@@ -181,8 +185,17 @@
 
 ## Iron Maiden
 
-- Run to the Hills
+- Run to the Hills / COMPLETE
     - http://www.youtube.com/watch?v=geHLdg_VNww
+
+- 2 Minutes, Til Midnight
+    - https://www.youtube.com/watch?v=GPbqQOf41Qc
+        - :12 / the drummer
+        - :39 / the sell
+        - :50 / the sell
+        - 1:34 / the bass player
+        - 2:45 / the plot
+        - 
 
 ## Hurricane
 
