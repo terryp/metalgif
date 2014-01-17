@@ -93,7 +93,7 @@
 
 ## Clerks (FILM)
 
-- Bezeker
+- Bezeker / COMPLETE
     - https://www.youtube.com/watch?v=7gFoHkkCaRE
 
 ## David Lee Roth
@@ -126,7 +126,7 @@
 
 ## Dokken
 
-- Breaking the Chains
+- Breaking the Chains / COMPLETE
     - http://www.youtube.com/watch?v=DETUV4tCHMc
 
 - Dream Warriors / COMPLETE
