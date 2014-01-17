@@ -188,14 +188,8 @@
 - Run to the Hills / COMPLETE
     - http://www.youtube.com/watch?v=geHLdg_VNww
 
-- 2 Minutes, Til Midnight
+- 2 Minutes, Til Midnight / COMPLETE
     - https://www.youtube.com/watch?v=GPbqQOf41Qc
-        - :12 / the drummer
-        - :39 / the sell
-        - :50 / the sell
-        - 1:34 / the bass player
-        - 2:45 / the plot
-        - 
 
 ## Hurricane
 
@@ -371,11 +365,8 @@
 
 ## Slade 
 
-- Run Runaway
+- Run Runaway / COMPLETE
     - http://www.youtube.com/watch?v=ikMiQZF-mAY
-        - 1:01 to 1:04 / 
-        - 1:15 to 1:18 / the twirl
-        - 1:24 to 1:26 / the goose neck
 
 ## Steve Stevns
 
