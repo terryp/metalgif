@@ -96,6 +96,11 @@
 - Bezeker / COMPLETE
     - https://www.youtube.com/watch?v=7gFoHkkCaRE
 
+## Danzig
+
+- Mother / COMPLETE (Twice)
+    - http://www.youtube.com/watch?v=vgSn0SbQJQI
+
 ## David Lee Roth
 
 - Just Like Paradise / COMPLETE
@@ -190,6 +195,9 @@
 
 - 2 Minutes, Til Midnight / COMPLETE
     - https://www.youtube.com/watch?v=GPbqQOf41Qc
+   
+- Can I Play With madness / COMPLETE
+    - http://www.youtube.com/watch?v=xSZbbTjM0Es
 
 ## Hurricane
 
@@ -211,6 +219,11 @@
 
 - Save Your Love
      - http://www.youtube.com/watch?v=eG4V61siA2c
+
+## Judas Priest
+
+- Hot Rockin / COMPLETE
+     - http://www.youtube.com/watch?v=ki3TpFZY7cU
 
 ## Keel
 
@@ -253,6 +266,11 @@
 - Why do you think they call it dope / COMPLETE
     - http://www.youtube.com/watch?v=HtAxLs7nmiU
 
+## Manowar
+
+- Gloves of Metal / COMPLETE
+    - http://www.youtube.com/watch?v=-4qTi7cDtI4
+
 ## Motley Crue
 
 - Girls, Girls, Girls / COMPLETE
@@ -263,6 +281,11 @@
 
 - Too Young to Fall in Love / COMPLETE
     - http://www.youtube.com/watch?v=4WU6DpFFWTM
+
+## Motorhead
+
+- I Ain't No Nice Guy Anymore (w/ Ozzy and Slash) / COMPLETE
+    - http://www.youtube.com/watch?v=7lHqG3sj1Fw
 
 ## Mr Big
 
