@@ -472,6 +472,11 @@
 
 - Edge of a Broken Heart / COMPLETE
     - http://www.youtube.com/watch?v=mQOmDUnt8Hs
+     
+## Warrant
+
+- Cherry Pie / COMPLETE
+    - http://www.youtube.com/watch?v=OjyZKfdwlng
 
 ## WASP
 
