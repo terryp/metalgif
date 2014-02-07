@@ -271,6 +271,11 @@
 - Gloves of Metal / COMPLETE
     - http://www.youtube.com/watch?v=-4qTi7cDtI4
 
+## Megadeth
+
+- Peace Sells / COMPLETE
+    - http://www.youtube.com/watch?v=rdEupVsL07E
+
 ## Motley Crue
 
 - Girls, Girls, Girls / COMPLETE
