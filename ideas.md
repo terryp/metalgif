@@ -455,6 +455,11 @@
 
 - 10,000 Lovers in One
     - http://www.youtube.com/watch?v=v2Trhpltp0Y
+
+## Triumph (wants to be Rush, but the vocalist sounds like Tesla)
+- Lay it On the Line
+    - http://www.youtube.com/watch?v=nn_yRlYVnUw
+         - 2:04 to 2:08
 		
 ## Trixter
 
