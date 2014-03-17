@@ -252,6 +252,14 @@
     - http://www.youtube.com/watch?v=MclSSoOBt3Q
         - 3:48 to 3:52 
 
+## Slaughter
+
+- Up All Night
+    - https://www.youtube.com/watch?feature=player_embedded&v=8Za0gWXJW1w
+        - note: really awful guitar solo
+        - Too many gif-portunities to count
+
+
 ## Steve Stevns
 
 - Atomic Playboys
