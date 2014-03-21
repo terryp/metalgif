@@ -396,6 +396,14 @@
 - Run Runaway / COMPLETE
     - http://www.youtube.com/watch?v=ikMiQZF-mAY
 
+## Slaughter
+
+- Up All Night
+    - https://www.youtube.com/watch?feature=player_embedded&v=8Za0gWXJW1w
+        - note: really awful guitar solo
+        - Too many gif-portunities to count
+
+
 ## Steve Stevns
 
 - Atomic Playboys / COMPLETE
