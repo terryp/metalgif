@@ -41,7 +41,7 @@
 
 ## Autograph
 
-- Turn Up the Radio
+- Turn Up the Radio / COMPLETE
      - http://www.youtube.com/watch?v=Uv8wYWK-HW4
 
 ## Bang Tango
