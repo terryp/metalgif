@@ -329,3 +329,9 @@
     - http://www.youtube.com/watch?v=8b2SVxOPwww
         - 0:15 to 0:23
         - 1:22 to 1:23
+
+## Yngwie Malmsteen
+
+  - Heaven Tonight
+    - https://www.youtube.com/watch?v=L8KHMJU0LaU
+    
