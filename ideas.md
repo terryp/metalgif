@@ -335,3 +335,5 @@
   - Heaven Tonight
     - https://www.youtube.com/watch?v=L8KHMJU0LaU
     
+  - I'll See the Light Tonight
+    - https://www.youtube.com/watch?v=JD-v7vVxJ4U
