@@ -114,6 +114,9 @@
 - Pour Some Sugar on Me / COMPLETE
     - http://www.youtube.com/watch?v=0UIB9Y4OFPs
 
+- Bringing on the Heartbreak / COMPLETE
+    - https://www.youtube.com/watch?v=Vt2Y78VgfNQ 
+
 ## Danger Danger
 
 - Naughty Naughty / COMPLETE
@@ -199,6 +202,9 @@
 - Can I Play With madness / COMPLETE
     - http://www.youtube.com/watch?v=xSZbbTjM0Es
 
+- The Number of the Beast / COMPLETE
+    - https://www.youtube.com/watch?v=CamAhPeYoC8
+
 ## Hurricane
 
 - I'm On to You
@@ -216,6 +222,12 @@
 
 - Once Bitten Twice Shy 
      - http://www.youtube.com/watch?v=Bz61YQWZuYU
+        - :01 - Subtle
+        - :12 - The Drummer
+        - :25 - The Fist
+        - :52 - The Keyboard Player
+        - 1:02 - The Piano Hand
+        - 1:54 - The Number Hand
 
 - Save Your Love
      - http://www.youtube.com/watch?v=eG4V61siA2c
