@@ -544,3 +544,9 @@
 
 - Summertime Girls / COMPLETE
     - http://www.youtube.com/watch?v=8b2SVxOPwww
+
+## ZZ Top
+
+- Legs / COMPLETE
+    - https://www.youtube.com/watch?v=eUDcTLaWJuo
+
