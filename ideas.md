@@ -177,6 +177,12 @@
         - 1:41 to 1:43
         - 1:47 to 1:48
 
+## Michael Schenker
+- Captain Nemo
+  - https://www.youtube.com/watch?v=qBWRELywD3w
+     - 0:23 - 0:25
+     - 0:53 - 0:55
+
 ## Mr Big
 
 - Addicted to that Rush
