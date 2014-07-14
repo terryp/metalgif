@@ -257,6 +257,10 @@
 - Love is on the Way
     - http://www.youtube.com/watch?v=MclSSoOBt3Q
         - 3:48 to 3:52 
+       
+## Scorpions
+- Rhythm of Love
+  - https://www.youtube.com/watch?v=vFAf_29KYTs
 
 ## Slaughter
 
