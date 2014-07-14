@@ -290,6 +290,11 @@
 - Lay it On the Line
     - http://www.youtube.com/watch?v=nn_yRlYVnUw
          - 2:04 to 2:08
+
+- Magic Power
+  - https://www.youtube.com/watch?v=WkZFvcJbiio
+  - INSTANT CLASSIC!!
+  - Flying V as spaceship!!
 		
 ## Trixter
 - Give it to Me Good
