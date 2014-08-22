@@ -270,9 +270,9 @@
         - 3:52 to 3:56
 
 ## Lynch Mob
+
 - Wicked Sensation
     - http://www.youtube.com/watch?v=Iuzw9erGJfQ
-
 
 ## Love/Hate
 
@@ -478,9 +478,9 @@
     - http://www.youtube.com/watch?v=v2Trhpltp0Y
 
 ## Triumph (wants to be Rush, but the vocalist sounds like Tesla)
-- Lay it On the Line
+
+- Lay it On the Line / COMPLETE
     - http://www.youtube.com/watch?v=nn_yRlYVnUw
-         - 2:04 to 2:08
 		
 ## Trixter
 
@@ -493,6 +493,8 @@
 - Jump / COMPLETE
 
 - Why Can't This Be Love (Live Without a Net) / COMPLETE
+
+- Hot For Teacher / COMPLETE
 
 ## Vinnie Vincent Invasion
 
@@ -529,7 +531,7 @@
  - Fool for Your Loving (featuring Steve Vai)
     - http://www.youtube.com/watch?v=GV3mhuF6W3w
     
- - Now You're Gone
+ - Now You're Gone / COMPLETE
     - http://www.youtube.com/watch?v=QvejJIuoETg
 
 ## Winger
