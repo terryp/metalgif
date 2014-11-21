@@ -118,6 +118,9 @@
 - Bringing on the Heartbreak / COMPLETE
     - https://www.youtube.com/watch?v=Vt2Y78VgfNQ 
 
+- Foolin' / COMPLETE
+    - http://www.youtube.com/watch?v=jACrmwTsi08
+
 ## Danger Danger
 
 - Naughty Naughty / COMPLETE
@@ -233,6 +236,11 @@
 - Save Your Love
      - http://www.youtube.com/watch?v=eG4V61siA2c
 
+## Iron Maiden
+
+- Aces High / COMPLETE
+    - https://www.youtube.com/watch?v=pEcpwSenouQ
+
 ## Judas Priest
 
 - Hot Rockin / COMPLETE
@@ -299,6 +307,12 @@
 
 - Too Young to Fall in Love / COMPLETE
     - http://www.youtube.com/watch?v=4WU6DpFFWTM
+
+- Wild Side / 
+    - http://www.youtube.com/watch?v=6nm1BJPe-pg
+        - :29 / The Twirl
+        - :31 / The Kick
+        - 
 
 ## Motorhead
 
