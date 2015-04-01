@@ -392,6 +392,17 @@
 - Back for More
     - http://www.youtube.com/watch?v=yLkF3lpDD5M
 
+## Rush
+
+- Tom Sawyer
+    - https://www.youtube.com/watch?v=auLBLk4ibAk
+
+- Subdivisions
+    - https://www.youtube.com/watch?v=EYYdQB0mkEU
+
+- Limelight
+    - https://www.youtube.com/watch?v=ZiRuj2_czzw
+
 ## Saga
 
 - On the Loose
