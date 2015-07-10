@@ -289,12 +289,16 @@
 - Peace Sells / COMPLETE
     - http://www.youtube.com/watch?v=rdEupVsL07E
 
+- In My Darkest Hour
+    - https://youtu.be/mW0Ao9r2zkY?t=254
+
+
 ## Michael Schenker
 
 - Captain Nemo
-  - https://www.youtube.com/watch?v=qBWRELywD3w
+    - https://www.youtube.com/watch?v=qBWRELywD3w
        - 0:23 - 0:25
-            - 0:53 - 0:55 
+       - 0:53 - 0:55 
 
 ## Motley Crue
 
@@ -426,6 +430,8 @@
     - https://www.youtube.com/watch?feature=player_embedded&v=8Za0gWXJW1w
         - note: really awful guitar solo
         - Too many gif-portunities to count
+
+
 ## Steelheart                                                                                  
 - I'll Never Let You Go 
     - http://www.youtube.com/watch?v=F-nyeiKk35M
@@ -465,15 +471,10 @@
          - 2:04 to 2:08
 
 - Magic Power
-  - https://www.youtube.com/watch?v=WkZFvcJbiio
-  - INSTANT CLASSIC!!
-  - Flying V as spaceship!!
+    - https://www.youtube.com/watch?v=WkZFvcJbiio
+    - INSTANT CLASSIC!!
+    - Flying V as spaceship!!
         
-## Trixter
-
-- Give it to Me Good
-    - http://www.youtube.com/watch?v=r2uNl0648zQ
-
 
 ## Warrant
 
@@ -481,7 +482,6 @@
     - http://www.youtube.com/watch?v=0RHENr6Xe70
 
 ## Whitesnake
-
 
  - Still of the Night
     - http://www.youtube.com/watch?v=r0oZejszyH0
@@ -496,13 +496,11 @@
 
 ## Winger
 
-
   - Seventeen
     - http://www.youtube.com/watch?v=GlN3oEjMpUQ
         - 3:48 to 3:50
 
 ## Van Halen
-
 
 - Jump / COMPLETE
     - http://www.youtube.com/watch?v=wlq0lYB3iSM
