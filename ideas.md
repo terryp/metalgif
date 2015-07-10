@@ -118,6 +118,9 @@
 - Bringing on the Heartbreak / COMPLETE
     - https://www.youtube.com/watch?v=Vt2Y78VgfNQ 
 
+- Foolin' / COMPLETE
+    - http://www.youtube.com/watch?v=jACrmwTsi08
+
 ## Danger Danger
 
 - Naughty Naughty / COMPLETE
@@ -233,6 +236,12 @@
 - Save Your Love
      - http://www.youtube.com/watch?v=eG4V61siA2c
 
+=======
+## Iron Maiden
+
+- Aces High / COMPLETE
+    - https://www.youtube.com/watch?v=pEcpwSenouQ
+
 ## Judas Priest
 
 - Hot Rockin / COMPLETE
@@ -311,6 +320,13 @@
 - Too Young to Fall in Love / COMPLETE
     - http://www.youtube.com/watch?v=4WU6DpFFWTM
 
+=======
+- Wild Side / 
+    - http://www.youtube.com/watch?v=6nm1BJPe-pg
+        - :29 / The Twirl
+        - :31 / The Kick
+        - 
+
 ## Motorhead
 
 - I Ain't No Nice Guy Anymore (w/ Ozzy and Slash) / COMPLETE
@@ -336,6 +352,10 @@
         - 3:08 to 3:14
 
 ## Ozzy Osbourne
+
+- Shot in the Dark / COMPLETE
+    - http://www.youtube.com/watch?v=XjYJIDyFofk
+
 
 - Shot in the Dark / COMPLETE
     - http://www.youtube.com/watch?v=XjYJIDyFofk
@@ -389,6 +409,17 @@
 - Back for More
     - http://www.youtube.com/watch?v=yLkF3lpDD5M
 
+=======
+## Rush
+
+- Tom Sawyer
+    - https://www.youtube.com/watch?v=auLBLk4ibAk
+
+- Subdivisions
+    - https://www.youtube.com/watch?v=EYYdQB0mkEU
+
+- Limelight
+    - https://www.youtube.com/watch?v=ZiRuj2_czzw
 
 ## Saga
 
@@ -535,7 +566,8 @@
 
 - Lay it On the Line / COMPLETE
     - http://www.youtube.com/watch?v=nn_yRlYVnUw
-        
+   
+
 ## Trixter
 
 - Give it to Me Good
@@ -603,7 +635,6 @@
 
 ## Yngwie Malmsteen
 
-
   - Heaven Tonight
     - https://www.youtube.com/watch?v=L8KHMJU0LaU
     
@@ -614,5 +645,4 @@
 
 - Legs / COMPLETE
     - https://www.youtube.com/watch?v=eUDcTLaWJuo
-
 
