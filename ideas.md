@@ -320,7 +320,17 @@
 - Too Young to Fall in Love / COMPLETE
     - http://www.youtube.com/watch?v=4WU6DpFFWTM
 
-=======
+- Home Sweet Home
+    - https://www.youtube.com/watch?v=3WAZ60xA9wo
+        - :35 / The Tour Bus
+        - :41 / The Time Lapse
+        - 1:17 / The Lighters
+        - 1:17 / The Stick Twirl
+        - 1:31 / Rocking
+        - 1:32 / The Crowd
+        - 2:21 / The Come Here
+        - 4:01 / Pyro
+
 - Wild Side / 
     - http://www.youtube.com/watch?v=6nm1BJPe-pg
         - :29 / The Twirl
