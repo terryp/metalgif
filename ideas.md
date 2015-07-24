@@ -236,6 +236,7 @@
 - Save Your Love
      - http://www.youtube.com/watch?v=eG4V61siA2c
 
+=======
 ## Iron Maiden
 
 - Aces High / COMPLETE
@@ -297,6 +298,17 @@
 - Peace Sells / COMPLETE
     - http://www.youtube.com/watch?v=rdEupVsL07E
 
+- In My Darkest Hour
+    - https://youtu.be/mW0Ao9r2zkY?t=254
+
+
+## Michael Schenker
+
+- Captain Nemo
+    - https://www.youtube.com/watch?v=qBWRELywD3w
+       - 0:23 - 0:25
+       - 0:53 - 0:55 
+
 ## Motley Crue
 
 - Girls, Girls, Girls / COMPLETE
@@ -308,6 +320,7 @@
 - Too Young to Fall in Love / COMPLETE
     - http://www.youtube.com/watch?v=4WU6DpFFWTM
 
+=======
 - Wild Side / 
     - http://www.youtube.com/watch?v=6nm1BJPe-pg
         - :29 / The Twirl
@@ -339,6 +352,10 @@
         - 3:08 to 3:14
 
 ## Ozzy Osbourne
+
+- Shot in the Dark / COMPLETE
+    - http://www.youtube.com/watch?v=XjYJIDyFofk
+
 
 - Shot in the Dark / COMPLETE
     - http://www.youtube.com/watch?v=XjYJIDyFofk
@@ -392,6 +409,7 @@
 - Back for More
     - http://www.youtube.com/watch?v=yLkF3lpDD5M
 
+=======
 ## Rush
 
 - Tom Sawyer
@@ -426,6 +444,9 @@
 - Rock You Like a Hurricane / COMPLETE
     - http://www.youtube.com/watch?v=sxdmw4tJJ1Y
 
+- Rhythm of Love
+    - https://www.youtube.com/watch?v=vFAf_29KYTs
+
 - Winds of Change
     - https://www.youtube.com/watch?v=n4RjJKxsamQ&feature=player_embedded
 
@@ -441,6 +462,10 @@
         - note: really awful guitar solo
         - Too many gif-portunities to count
 
+
+## Steelheart                                                                                  
+- I'll Never Let You Go 
+    - http://www.youtube.com/watch?v=F-nyeiKk35M
 
 ## Steve Stevns
 
@@ -465,11 +490,46 @@
 - Love Song / COMPLETE
     - http://www.youtube.com/watch?v=l2q\_-xN2N54
 
+## TNT
+
+- 10,000 Lovers in One
+    - http://www.youtube.com/watch?v=v2Trhpltp0Y
+
+## Triumph (wants to be Rush, but the vocalist sounds like Tesla)
+
+- Lay it On the Line
+    - http://www.youtube.com/watch?v=nn_yRlYVnUw
+         - 2:04 to 2:08
+
+- Magic Power
+    - https://www.youtube.com/watch?v=WkZFvcJbiio
+    - INSTANT CLASSIC!!
+    - Flying V as spaceship!!
+        
+
 ## Warrant
 
 - Down Boys / COMPLETE
     - http://www.youtube.com/watch?v=0RHENr6Xe70
 
+## Whitesnake
+
+ - Still of the Night
+    - http://www.youtube.com/watch?v=r0oZejszyH0
+        - 1:37 to 1:41
+        - 3:43 to 3:47
+
+ - Fool for Your Loving (featuring Steve Vai)
+    - http://www.youtube.com/watch?v=GV3mhuF6W3w
+    
+ - Now You're Gone
+    - http://www.youtube.com/watch?v=QvejJIuoETg
+
+## Winger
+
+  - Seventeen
+    - http://www.youtube.com/watch?v=GlN3oEjMpUQ
+        - 3:48 to 3:50
 
 ## Van Halen
 
@@ -496,7 +556,7 @@
 
 - I'll Never Let You Go (I feel bad about this one)
      - http://www.youtube.com/watch?v=F-nyeiKk35M
-		
+        
 ## TNT
 
 - 10,000 Lovers in One
@@ -506,7 +566,8 @@
 
 - Lay it On the Line / COMPLETE
     - http://www.youtube.com/watch?v=nn_yRlYVnUw
-		
+   
+
 ## Trixter
 
 - Give it to Me Good
@@ -571,6 +632,14 @@
 
 - Summertime Girls / COMPLETE
     - http://www.youtube.com/watch?v=8b2SVxOPwww
+
+## Yngwie Malmsteen
+
+  - Heaven Tonight
+    - https://www.youtube.com/watch?v=L8KHMJU0LaU
+    
+  - I'll See the Light Tonight
+    - https://www.youtube.com/watch?v=JD-v7vVxJ4U
 
 ## ZZ Top
 
