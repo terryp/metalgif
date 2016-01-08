@@ -342,6 +342,10 @@
 - I Ain't No Nice Guy Anymore (w/ Ozzy and Slash) / COMPLETE
     - http://www.youtube.com/watch?v=7lHqG3sj1Fw
 
+- Killed by Death
+    - https://youtu.be/FL7-sbiGlzw
+
+
 ## Mr Big
 
 - Addicted to that Rush / COMPLETE
