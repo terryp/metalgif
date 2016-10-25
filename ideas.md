@@ -654,6 +654,11 @@
   - I'll See the Light Tonight
     - https://www.youtube.com/watch?v=JD-v7vVxJ4U
 
+## Voivoid
+ 
+  - Ravenous Machines
+    - https://youtu.be/R4Ly8nstfxo
+
 ## ZZ Top
 
 - Legs / COMPLETE
